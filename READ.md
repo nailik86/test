@@ -1,246 +1,210 @@
-almly looking at Scarblade Qiang’s wry smile, Tang Xiu was actually quite satisfied. He nodded and said, “I heard that you’re already married. Do you and your wife already have a child?”
-“Yes, we have a son, and he’s already in primary school. I want him to have a good education so I send him to a prestigious primary school in the city. As for my wife, she followed him there to take care of him.” Scarblade Qiang replied.
-With a smile, Tang Xiu said, “Since you sent your wife and child to settle properly, then, you do want to have a stable and promising business in the future, don’t you? If you want it, I can give you a way out.”
-“What way?” Scarblade Qiang asked with a surprised expression.
-“I have an ancient recipe for winemaking. If you can adhere to the requirement I gave you and ferment good wines I need, I can build a winery and give it to you to manage. It’s also fine if you only want to only brew wines, I can give 10% of the shares and you can become the Master Distiller there.”
-Out of his curiosity, Scarblade Qiang asked, “You… how much money are you going to invest to set up this winery?”
-“I can’t say the exact number right now. But I want to set up at least one big winery. As long as the production line can keep up, the sales won’t be a problem. Also, you’ll take the role as its director to manage this winery as a subsidiary company under my company group.” Tang Xiu said with a smile.
-“Your company group is…” Scarblade Qiang asked again.
-“It’s the Magnificent Tang Corporation.” Tang Xiu replied.
-Scarblade Qiang hadn’t heard the name, but he nodded and said, “Can you give me some time to think about it? This is a big and important matter to me.”
-“I’ll leave you my cell number. I’ll be staying here for the next few days, so I hope you can give me the answer before I leave. Ah, right. If you decide to go with me, you must follow me back to Star City. The Magnificent Tang Corporation resides in Star City, and the winery I’m going to set up, will be there also.” Tang Xiu said.
-“Alright!” Scarblade Qiang nodded.
-Noon of the next day.
-Miao Wentang and Shao Mingzhen’s men had purchased the needed things from Cangbei City and returned to Qingshan Town. They were unable to find explosives, but got a lot of fireworks.
-The group consisted of nine people ventured into the Primeforest Mountain Range once again.
-This time, Tang Xiu didn’t instruct Miao Wentang and Shao Mingzhen’s men to stay in the mountainside. He also brought them to the Sky Cavern and let them help with the boulders, prepared the needed things and delivered those things down with the ropes.
-Within a full two days, everything was ready under Tang Xiu’s arrangement.
-Whilst standing next to the Sky Cavern, Miao Wentang asked, “Brother Tang, everything’s ready. The men are also done with all of the arrangements you’ve instructed. So, what will the three of us do now?”
-“We wait.” Tang Xiu said.
-“We wait?” With a puzzled expression, Miao Wentang asked.
+Su Lingyun looked up with dim and teary eyes as she nodded repeatedly. A mother’s love was as like a mountain. Which mother who didn’t hope for their children to have a successful life when they grow up? Each and every one of them would look forward to their children’s achievements in the future. And today, despite his young age, her son even had laid down a career for which an average person couldn’t achieve for a lifetime, causing her to feel so happy and sweet inside.
+"You're right!"
+Su Lingyun wiped away her tears. She looked at Tang Xiu and said, "Xiu’er, Mom is very proud of you.”
+Tang Xiu cast a grateful look toward Mu Qingping before he replied with a smile, "Mom, I’m also very proud of you.”
+The entire morning was spent with Tang Xiu accompanying Su Lingyun, telling her as to why he hid things from her. However, he still hid the matter of his return from the Immortal World as well as his Immortal cultivator identity. He didn’t dare to reveal the total assets he had, much less about Immortal matters.
+He also hadn’t estimated the wealth he had before. And now, as he recalled, even the value of the isolated island in the Pacific Ocean was around 2-3 billion yuan.
+Shortly before noon…
+Tang Xiu had lunch with Su Lingyun. Looking at Su Lingyun doting on Gu Yin, he smiled and said, “Mom, have you decided to move in with me? If you don’t want to sell our old house, it’s fine. We’ll still take care of the house later. Also, if you don’t want to take the test for a driver license, I’ll help you find a driver so you can have someone to send and pick you up to work every day.”
+Su Lingyun shook her head and said, “No, I’m used to live there. I definitely won’t be able to get used to living here! Son, I won’t move for now. Only after you’ve enrolled in the university will I consider moving! Later on, if you still want to live here, you can. But if you want to, you can also stay there. It’s just that the restaurant is much closer from there, so I won’t need to take a driver license test or look for a driver.”
+“This…”
+Tang Xiu didn’t want to go against his mother’s will, but he was also quite reluctant to let her live in their previous house. After hesitating for a while, he then slowly said, “It’s alright! I’ll arrange a room for you here. So you can come and stay here at any time you want.”
+In the afternoon, he sent Su Lingyun back to the restaurant. When he looked at her smiling face before leaving, she looked several years younger, causing his heart to be particularly satisfied.
+Tang Xiu arrived at the hotel where Scarblade Qiang was staying and just happened to see Kang Xia also arriving.
+“I just called you about ten minutes ago, how can you be here so soon?” Tang Xiu asked with a smile.
+Kang Xia replied, “I just happened to be working on something in the vicinity when you called. Anyway, Boss, this manager you’ve found for the winery, on what basis did you pick him?”
+Tang Xiu himself had heard directly from Scarblade Qiang. After telling everything from the beginning, he finally said, “He can change his way and turn a new leaf in life. He’s a real man. Thus, when I knew that he was also skilled in winemaking, I gave him a chance. If he’s able to grasp this chance, naturally, it wouldn’t be a problem to have a rapid advancement in life. If he can’t fully utilize this chance and his performance is bad, you, as his direct superior, have the right to dismiss him directly.”
 
-“I can feel the changes in your and Shao Mingzhen’s aura these days. You’ve begun to practice the set of Immortal cultivation technique I sold you, haven’t you? It’s a pity that your foundations are not that good. Perhaps, it would take quite a long time for you two to upgrade your True Qi into True Essence. Anyways, we’ll have to take a rest from now until tomorrow morning to restore our condition to the peak. Whether we’ll be dead or alive tomorrow, it will depend entirely on ourselves.” Tang Xiu said.
-"Understood!" Miao Wentang and Shao Mingzhen nodded in unison.
-The next day.
-Just as dawn came, the Tang Xiu trio arrived at the bottom of the Sky Cavern. They were wearing helmets with searchlight and held a torch in hand. Three ropes had been laid down from the top of the Sky Cavern, which they prepared for the escape, and they also carried along nylon bags on their waists.
-“Brother Miao, after we go inside two minutes later, ignite the gunpowder train. The exploding sounds of the fireworks will lure the Fire Qilin from the inside, that will be our chance to snatch the things inside. Remember, you’re responsible to aid us. Wait for us here and prepare a big bamboo basket, tie it up with the ropes above and be ready to pull us at once when we give you the call!” Tang Xiu instructed.
-“No problem! I’ll bear it in mind!” Miao Wentang said.
-Tang Xiu and Shao Mingzhen glanced to give a sign to each other. Then, they raised their torches and walked toward the cave entrance. After two minutes, they heard the exploding sounds of the fireworks clearly.
-“Now!”
-Tang Xiu had been using his perception to observe the Fire Qilin in the space inside the cave. He could see that the Fire Qilin instantly flashed towards the direction of the explosion, so he and Shao Mingzhen instantly rushed inside.
-“Grab those things quickly!”
-After Tang Xiu arrived in the large space inside the cave, he immediately ran to the wooden table, grabbing the jade box and ancient sword on it, and hastily stuffed them into the prepared bag. Then, he sprinted toward the sky sandstones and stuffed two pieces weighing a hundred pounds each and also stuffed them into the bag.
-His strength was quite powerful, but Shao Mingzhen was even stronger.
-He didn’t have a minute’s hesitation in grabbing these things. Fast as though lightning, his body then flashed and rushed out toward the passageway. Shao Mingzhen, on the other hand, also acted very fast. He quickly loaded three sky sandstones into the nylon bag while also grabbing one with his hand as he followed Tang Xiu to rush outside through the passageway.
-The time spent from the beginning to the end was not more than ten seconds.
-After they sprinted and arrived at the Sky Cavern’s bottom, Tang Xiu immediately threw the nylon bag onto the big bamboo basket that had been tied up with a rope. Then, he took the piece of sky sandstone weighing a hundred pounds from Shao Mingzhen’s hand and clamped it with his armpit as he began to climb up.
-Shao Mingzhen also moved very quickly. He tied up the nylon bag around his hand and quickly climbed up to the trench above.
-They were racing against time, struggling to snatch their own life from the Grim Reaper.
-Just as they climbed up to the top of the Sky Cavern, Miao Wentang had already pulled up the big bamboo basket.
-At this moment, a deafening roar came out from the cave entrance at the bottom of the Sky Cavern.
-“Run now and do your best to escape! As long as we escape from this natural maze, we’ll be safe!” Whilst holding the piece of sky sandstone, Tang Xiu released everything he had and ran.
-Whoosh, whoosh, whoosh!
-As though ghosts, three figures flashed through within the forested mountains.
-"Roar……"
-Just as the trio burst into the maze, a terrifying heat wave surged forth. As the roaring sounds became louder, it shook their eardrums, as they could feel a faint, dull pain inside their ears.
-Whilst running, Miao Wentang and Shao Mingzhen took a moment to turn their heads and take a glance back. But what they saw immediately shook their hearts violently. They clearly saw a four or five-meter-high Fire Qilin with blazing flame all over its body that had just jumped out from the Sky Cavern.
-“RUN…”
-With such a soul stirring stimulation, their potential was also stimulated, as at the same time also boosted up their speed. They were even twice faster than Tang Xiu. They sprinted and caught up with him. With extremely tacit understanding, they grabbed Tang Xiu’s shoulders with their empty hands from both sides.
-“Whoosh…”
-As the trio was about to rush out of the natural imaginary array, they felt a burst of blazing heat from their back. In a split second, the back of their clothes was burnt to ashes. The heat also burned their back’s skin, as a smell of burning skin and meat emitted out from it.
-Run! Run! Run!
-At the moment, it was the one and only thought that occupied Miao Wentang and Shao Mingzhen’s heart. It was this very moment that they were wished they had a few more legs, so as to make them run better and faster; for Tang Xiu had said that as long as they could escape this natural maze, they would be safe and could completely forget everything behind.
-Only after they had sprinted to the mountain foot were they able to sober up from the running away thought. As they stopped running, they looked to the back and felt greatly relieved from the tense feeling as they didn’t see the Fire Qilin chasing them anymore.
-“Huff, huff… damn… we almost died.”
-They put Tang Xiu down as Miao Wentang said and panted with a pale look.
-Tang Xiu looked at the both of them with a grateful expression and said, “Thanks for the rescue, both of you. If you didn’t grab me, I would have died by that Fire Qilin!”
-Miao Wentang and Shao Mingzhen paused and glanced at each other as the two suddenly burst into a happy laughter.
-They just survived a disaster! So they were especially ecstatic. They could feel that after having gone through such experience, their relationship with Tang Xiu got much closer.
-Miao Wentang said with a laugh, “Hahaha, Brother Tang, if it weren’t for your planning, we simply wouldn’t have been able to snatch those things from the inside. I can even say that we’d meet our maker there! So we don’t need to say thanks to each other. But damn! The flame sprayed by that Fire Qilin was so damn terrifying. My back is really hurting!”
-Shao Mingzhen also said with a smile, “It really is painful. But it’s worth the price though. Let’s take these things and get the hell out of this place. If that Fire Qilin comes out of that natural imaginary array and chases us, we might not be able to escape later.”
-At the moment, Tang Xiu also felt the pain from his back. But he didn’t pay much attention to it and said with a smile, “No, that Fire Qilin won’t be able to come out from that natural imaginary array. The might of that array is ten times more powerful than its cultivation. If it was able to come out, maybe it’d have already left a long time ago. Anyways, let’s leave here quickly, and go back with these treasures.”
-“Alright, let’s go!”
-The trio no longer stayed as they rushed as though the wind and lightning toward Qingshan Town’s direction.
-Even after a long one-day of traversing through the hills and dales, the trio still hurriedly rushed back to Qingshan Town even though they were already exhausted. Their pace was even twice faster compared to when they went.
-In the hotel.
-Tang Xiu quickly took a bath. After he changed and put on clean clothes, he came out of his room and saw that Shao Mingzhen had also just come out from his room. The two looked and smiled at each other as they then knocked Miao Wentang’s door.
-“Come here quickly!”
-Miao Wentang opened his door. He spoke whilst wiping his wet hair with a towel.
-After the two of them went inside, their eyes fell onto the two nylon bags with the sky sandstones above them.
-Tang Xiu walked toward it. He took out six pieces of sky sandstones from the two bags, as well as an ancient sword and a crystalline jade box.
-The sky sandstones then divided as each one of them got two pieces.
-Miao Wentang and Shao Mingzhen said they had no interest in the ancient sword. So their eyes focused on the jade box. Only Tang Xiu who took the ancient sword, as he looked at it with a trace of smile on the corner of his mouth.
-It was not an Immortal sword!
-But it was actually a flying sword used by a Daoist cultivator. Although he didn’t know how did this flying sword was left behind inside the cave, Tang Xiu gladly accepted it. He was confident that after he re-tempered it, he would definitely be able to refine it into a top-notch quality flying sword. In the Immortal world, a top-notch flying sword was perhaps considered as garbage, but on Earth, it was a rare and hard-to-come-by treasure.
-Finally, his vision shifted toward the crystalline jade box. The jade box was 30cm long, 15cm wide and 10cm in height, with a beautiful carving pattern on it.
-“Open it and take a look what’s inside!”
-Miao Wentang said with a low tone.
+Kang Xia said with a smile, “Since you gave me the rights and privileges, I’m very relieved. Ah, right. I’ve looked over some information this morning about some wineries in Star City. I think one of them is quite good, but I haven’t had the time to have a thorough investigation as well as going to the site. But this winery is going to be closed down soon, so if we can have a buyout for it, it will save us quite the trouble.”
+“You and Scarblade Qiang take care of this matter. I have very important things to take care in the next few days, so I can’t be bothered with the setting of the winery as well as managing the business. If you’re short on money, give me a call, and I’ll find some way to work it out.”
+Kang Xia let out a tender smile and said, “I won’t need the funds for some time. But you truly have the ability, Boss. I can see that you actually don’t even need me to run the company since you can think of a way to when we’re short on money. You can even get quite a lot of it.”
+Tang Xiu shook his head and said, “No, I’ll need quite a huge sum of money. Let alone a billion, even tens of billions yuan won’t be enough for me! In short, I have to make money as much as possible since it would greatly affect my cultivation practice.”
+“Ah, so you’re thinking up of every possible means to make money only for your cultivation later?” Kang Xia was astounded.
+Tang Xiu nodded and said, “Yes, my cultivation speed will be faster when I have enough resources. I’m now in a dire need of cultivation resources. Fortunately, my cultivation level isn’t yet high for now, I can barely gather it up. But after my cultivation realm has reached higher levels, the resources I’ll need will increase. So, without huge financial support, it will be difficult to speed up my cultivation.”
+“Okay then, I’ll work hard.” Kang Xia nodded and said.
+“I believe you!”
+Tang Xiu said with a confident smile.
+With a confused expression, Kang Xia asked, “Why do you have so much confidence in me?”
+Tang Xiu replied with a smile, “Of course I do. You’re helping me make money. For that, I even gave you the shares as well as urged you to start cultivating. So naturally you’ll also need a lot of resources. If you want to become stronger, you must have massive cultivation resources, which in turn, we also have to make money faster.”
+Kang Xia couldn’t help but feel at a loss whether she had to be amused or cry as she said, “So you taught me a cultivation technique, just for that purpose? Aii, you truly boarded me on a pirate ship.”
+Tang Xiu teased her, “But still, you have the opportunity to disembark.”
+Kang Xia firmly shook her head and replied, “No, disembarking will not prevent me from dying. I want to be the celestial being as in fables!”
+Tang Xiu called Scarblade Qiang in the lobby’s hall, telling him that he was waiting for him there. Shortly after, Scarblade Qiang had rushed down from upstairs. However, when he saw Kang Xia, he fell into a daze once again upon seeing such a beauty. He was as though someone who was having a hard time as he looked at her foolishly. Only after a while did he finally recover with an embarrassed and awkward expression.
+“She’s Kang Xia, the General Manager of my company. She’ll be your direct superior. Do bear in mind that her words will be my words. And she will delegate every task on my behalf. If your performance isn’t good enough or she’s not satisfied with your work, she has the right to dismiss you.”
+Everyone loves beauties, even heroes would find it difficult to pass through them. Scarblade Qian was enchanted by Kang Xia’s beauty, but Tang Xiu didn’t bother to care about it. He only told him about Kang Xia’s identity with a tone of warning in his words.
+Scarblade Qiang’s face turned solemn as he said seriously, “Worry not, Boss. Since you gave the chance and brought me here from a faraway place, I assure you that I won’t make you lose face.”
+Tang Xiu nodded and said, “Kang Xia, we’ll go to the winery you told me! If it’s really good and we can buy it with a low price, then we’ll set up our winery there. As for the recipe, I’ll tell Scarblade Qiang directly. I’ll buy the machinery for wine production after the site has been determined.”
+Kang Xia asked, “Boss, have you considered about the sales aspect for the wines we’re going to produce?”
+“We’ll take the same route with our cosmetics and healthcare products. Open our exclusive chain stores in each city and take the high-end line. As for the price per bottle, it must be set at above five digits.”
+Kang Xia exclaimed, “Wouldn’t it be too high a price?”
+Tang Xiu replied confidently, “It won’t be. You’ll find out later.”
+At present…
+Kang Xia was not driving her Lamborghini, but a Mercedes-Benz, while Scarblade Qiang acted as a driver, causing the latter to smile wryly inside.
+Cistern Mire Winery.
+It was an old winery in Star City, and was a state-owned enterprise. Because of the poor management, it was sold to the private sector by the government. The winery was located in the Old Riverstreet District. Except for the recycling center in the vicinity, the surrounding itself was a cropland, while the road leading this place was supposed to head to this winery.
+After the Mercedes-Benz parked in front of the winery, they got off from the car and walked toward the door.
+“It’s locked?”
+After looking at the big rusty iron lock, he looked at Kang Xia with a confused expression.
+Kang Xia’s brows also deeply wrinkled as she said with a puzzled expression, “I found about this winery from the Internet and haven’t investigated this site before. So I don’t know much about the situation. Should we find someone to inquire about it?”
+The exact moment she said that, a plump-bellied old man wearing big pants and a singlet, was taking a stroll whilst carrying a big pipe. Kang Xia quickly walked toward him and asked, “Uncle, do you know why this Cistern Mire Winery is locked?”
+The old man stopped walking. He glanced at the Kang Xia trio a few times before snappily replying, “What other reason can it be. That wretched boss pocketed the worker’s wages and even made bad wines. So the business was just dumped. This old man was a guard here before, and he still owes me almost half a year’s wage!”
+“Since the winery has been closed, then, who’s the owner now?” Kang Xia asked with a puzzled expression.
+The old man let out a curse, “That bastard ran away! He was so much drowned in debt that, before he ran away, someone killed! The government has taken over the winery, but only God knows when someone will buy this winery.”
+Kang Xia was surprised. “The government has taken the winery back? Was it because the last owner owed the government?”
+The old man said, “The last winery’s owner evaded tax, to begin with. After he went bankrupt, only then the government found about it, so the authorities confiscated it. Ah right, what’s your business here?”
+Kang Xia said, “We’re investigating the situation with this winery since we’re planning to invest in the liquor business. So we’re taking a look at this Cistern Mire Winery! But we didn’t expect that everything to be gone when we came here. Anyways, thanks for telling us, Uncle.”
+The Old Man waved his hand and took his big pipe away.
+Kang Xia then looked at Tang Xiu and asked, “Well, what should we do now, Boss? Shall we negotiate with the government?”
+Tang Xiu nodded and said, “Yes, negotiate with the government and try to buy this winery under the market price. If your personal network is not enough, contact Long Zhengyu. He’s the local boss here. It would be wasteful if I can’t use this resource.”
+Kang Xia covered her mouth as she laughed and replied, “Hahaha. To think that Long Zhengyu would have such a friend. It’s truly his bad luck! But what you said makes sense. I’ll call him now and try to buy this winery at the lowest price. However, this winery is very old, and even though it’s very large, it’s quite dilapidated. I’m afraid we’ll have to renovate and even rebuild it if we’re going to use it.”
+Tang Xiu said, “Then push the reconstruction for the site! Use everything remaining that can still be used and deal with the rest that can’t be recovered! After everything has been completed, we’ll think about the issue with the wine sales later.”
 
 
 
 
-Just as the lid of the crystalline jade box was opened, a refreshing fragrance immediately fluttered, assailing their nostrils and filling the entire hotel’s room. Tang Xiu, Miao Wentang, and Shao Mingzhen’s spirits immediately startled as they felt a comfortable feeling as the pores of their bodies opened.
-Inside the jade box, two scarlet-colored concocted pills were lying there. The fluttering rich fragrance was emitting out from these two pills.
-“What’s this?”
-Miao Wentang looked at Tang Xiu at his side. In his mind, Tang Xiu was too mysterious. He even had an Immortal cultivation technique and sold them a Beast Subduing Secret Art conveniently. So he thought that Tang Xiu was also well-informed about this thing.
-But this time, he was actually mistaken!
-Tang Xiu himself frowned. He shook his head and said, “I’ve seen myriads of concocted pills. But I can’t identify what kind of pill this is and what effect it has.”
-Miao Wentang said with hesitation, “Since we don’t know what kind of pill and its efficacy, how would we dare to take it?”
-Shao Mingzhen also nodded and said, “That’s right! From the fragrance of these pills only, I know that it's extraordinary. But if we don’t know what effect it has and take it rashly, maybe there will be side effects. If it isn’t helpful and instead brings harm to us, what we get won’t be equal to the losses.”
-“Give me a knife.” Tang Xiu said.
-“Huh? What’s the knife for?” Miao Wentang asked with a puzzled expression.
-“I’m going to taste this pill.” Tang Xiu replied.
-Taste the medicine?
-Miao Wentang stared blankly for a moment before he immediately took a sharp knife.
-Tang Xiu’s control over his strength for doing any subtle motoric actions was extremely accurate. He used the tip of the knife to scratch a tiny piece of the pill and tasted it with his tongue. After that, he slowly closed his eyes and silently savored the composition of the ingredients in the concocted pills as well as figured out its efficacy.
-“So? What effect does it have?”
-Upon seeing that Tang Xiu opened his eyes again, Miao Wentang hurriedly asked.
-Tang Xiu let out a forced smile and said, “I took this kind of pill once. It’s called Myriad Bestial Pill. This kind of pill is figuratively composed from ten thousand kinds of blood essence of spirit beasts, added with ten thousand kinds of medicinal herbs and with the time-consuming refinement of nearly a hundred years for it to become an elixir. It has the effect of improving one’s cultivation level and making their cultivation improve greatly. Even though the pills from this jade box are just like comparing the day and night with the Myriad Bestial Pill, but it should still have an excellent effect on your cultivation.”
-Ten thousand kinds of spirit beasts’ blood essences?
-Ten thousand kinds of medicinal herbs?
-And nearly a hundred years of refinement?
-Miao Wentang and Shao Mingzhen looked at Tang Xiu with a strange expression. They thought that Tang Xiu was overly supercilious. They had seen people boast, but not to such outrageous degree! They were also cultivators, and they also knew that along with the increase of a cultivators’ cultivation level, so too would their lifespan increase. But for a person who could do alchemy and refine a pill for an entire hundred years, was unheard of.
+Shortly after, Tang Xiu didn’t bother himself with the winery issue. However, he had bought a number of materials to make wine in the storehouse. His winemaking method was very special since he used a lot of herbs and fruits aside the grains. But the main problem in brewing wines, was time. It took at least several days only to ferment the grain, making the fruit into jams and boiling the herbs before the truly good wines could be brewed
+However, after everything had been bought, he realized that he had no money left. The first day he got the 2.5 billion, he paid the 2 billion debt to Chen Zhizhong and gave 300 million yuan to Kang Xia, while the remaining 200 million was given to Chu Yi to pay the medicinal herbs he bought.
+“I have to think of a means to raise money!”
+The early work for winemaking had been completed. Tang Xiu was standing in the storehouse, thinking with a helpless expression. Recently, he had to take care of a lot of things, but each and every matter needed money. He had the thought of selling a cultivation practice, but he also had dug out nearly all the money Shao Mingzhen and Miao Wentang had. Even if he wanted to sell it, he couldn’t find a suitable buyer. The other cultivator he knew was Dao Master Ziyi, but he was a penniless Daoist- even if he sacrificed everything, Tang Xiu didn’t know as for how much money he could squeeze out!
+Borrow some money?
+The thought popped up inside Tang Xiu’s mind, but he straightly tossed it away.
+“Knock, knock…”
+The storehouse’s door was knocked as Gu Yin came inside with an anticipating expression. She looked at Tang Xiu and said, “Master, Yinyin needs a tutorial and a working note book, so I need to go out to buy them. But Mom is still attending her course class and has no time to accompany me. Could you go with me to the stationery shop?”
+Tang Xiu said with a smile, “Alright, we’ll go now.”
+He had no money right now, but it was enough to buy tutorial and homework books. Also, Gu Yin’s study was important, while he was also waiting for the fermentation process to be finished. Temporarily, he couldn’t continue the winemaking process, so he had nothing to do for now.
+Tang Xiu left South Gate Town along with Gu Yi. Just as he came out of the villa complex’s entrance, his keen sense perceived a menacing feeling. The feeling gave him a kind of faint restlessness. It was as if there was a pair of eyes that was tightly locked and staring at him from a dark corner.
+_“Have I offended anyone recently?”_
+Tang Xiu frowned. He glanced around with a casual manner a few times and pulled Gu Yin closer to him. No matter what danger would come, he could never let Gu Yin be injured even if he himself would be injured.
+A few minutes later when Tang Xiu and Gu Yin arrived at the nearby commercial street, the feeling disappeared without a trace. However, he didn’t put down his vigilance. After accompanying Gu Yin to buy the tutoring and homework book, he quickly walked her back home.
 
-It was simply an Arabian Night's tale!
-Then, Miao Wentang asked, “This really can increase our cultivation?”
-“Yes!” Tang Xiu gave a matter-of-factly answer.
-“No side effects at all?” Shao Mingzhen asked.
-Tang Xiu hesitated for a moment before he replied slowly, “It maybe has a little side effect for you.”
-Shao Mingzhen quickly asked, “What side effect?”
-A smile and yet unlike one, was revealed on Tang Xiu’s face as he replied, “Well, with your cultivation level now, if you dare to take it directly, you’ll probably die with your body exploding due to your body being unable to contain the huge energy from this pill.”
-"What?" The two were astounded.
-At present, their cultivation level had reached a high level. But still, they would have their bodies exploded by merely taking this pill? What efficacy could this pill have to even have such a strong energy?
-Miao Wentang swallowed his saliva and asked, “Brother Tang, so, when will it be appropriate for us to take this pill?”
-“Wait until your cultivation level improves at least two levels more.” Tang Xiu said.
-"This…"
-The two men smiled wryly in secret. With their current cultivation realm, wanting to breakthrough to the next stage would be very difficult. It would probably take a few years or even decades. If they wanted to take this pill they had to improve their cultivation at least two levels more; then, wouldn’t they have to wait for only God knows when?
-“Anyways, the two of you take one pill each! This pill doesn’t have any uses for me. But I will take the jade box since I can use this thing to store concocted pills later.” Tang Xiu said.
-“Is that okay with you?”
-Miao Wentang and Shao Mingzhen glanced at each other as a bit of hesitation revealed on their faces.
-Tang Xiu said, “I’ll take the ancient sword. This is already a good harvest. Besides, even if I take the concocted pills, I don’t know how long I’ll have to wait to take it.”
-The two men thought that Tang Xiu’s words were reasonable. If they had to promote their cultivation base two stages more to take this pill, then, with Tang Xiu’s current cultivation base, it would perhaps take decades for him.
-However, this concocted pill was, after all, a treasure! Even if their bodies couldn’t support it and may explode if they took it now, but all in all, wasn’t it still considered as a very valuable medicine?
-_“This fellow is really neither selfish or greedy!”_
-Miao Wentang and Shao Mingzhen sighed secretly inside. Even if Tang Xiu was younger and around half of their age, but they truly respected him.
-Shao Mingzhen carefully took the pill which Tang Xiu had scrapped a tiny piece from and said, “Brother Tang, since you’ve said so, we won’t hesitate and be hypocrites. But later on, if there’s anything you need, speak to us feely! You can say that I and Brother Miao owe you a favor!”
-Miao Wentang also nodded and said, “Yes! If it weren’t for you, we simply wouldn’t have been able to get this marvelous medicinal pill. We’ll take this favor into our tab.”
-Tang Xiu shook his head and said, “No, we cooperated to get these. It’s just only a matter of harvest distribution, no more. However, you need to pay more attention for the money you’ll send me! As I’ll go back to Star City tomorrow, and I need that money to handle a lot of things.”
-Upon hearing this, they simultaneously took their mobile.
-With 1 billion from before, they added 1.5 billion now. The two of them gathered the funds quickly. After finishing the arrangements, they told Tang Xiu that the money would be in his account before tomorrow evening.
-“Brother Tang, about these ores we snatched from the Sky Cavern, what kind of material these ores are? I have some knowledge about precious ores, but I’ve never seen this one. These ores are symmetrically cut, and neat. So this should be a good thing, right?” After he received the concocted pill, Shao Mingzhen shifted his vision toward the sky sandstones and inquired about it.
-Tang Xiu said, “Two of you, do bear in mind what I tell you today. These ores are much more precious compared to these pills. If news got out about these sky sandstones and discovered by those powerful cultivators who know about the uses of this ore, I’m afraid that it would attract their jealousy and they would be highly likely to find you to rob this stuff.”
-Shao Mingzhen exclaimed in alarm, “It’s even more precious than the pill? How could it be? It’s just only an ore! At most, it can only be refined into weapons and won’t be give much benefit to the people who get it, right?”
-Tang Xiu lightly replied, “What if this ore falls into the hands of a supreme expert who can forge divine artifacts or tools?”
-Shao Mingzhen’s pupils shrunk as Miao Wentang also couldn’t help but shudder.
-Divine tools and artifacts?
-Could this ore be refined and forged into divine tools and artifacts?
-They knew the classification of weapons from the lowest ordinary weapons to artifact weapons that even could cut iron like it was tofu. Those weapons even had its own spiritual nature and were treasures that could be placed within one’s body. It was just like in the fable where celestial beings used their immortal tools or deities that used their divine armaments.
-If they could get their hands on such treasures, perhaps, they would be able to laugh at their dreams as they awake. Let alone the divine armaments that were used by deities.
-“Brother Tang, you seem to know a lot of things?”
-After hesitating for a moment, Shao Mingzhen spoke tactfully.
-Tang Xiu realized that he had revealed too many things to them, sparking their interest and curiosity toward his identity. However, his return from the Immortal world was his greatest secret. Aside from Gu Yan’er and Ji Chimei, he mustn’t let another soul on the entire Earth know about this matter.
-“Like the proverb says, ‘In order to attain wisdom, it’s not enough to read only books, but you must be well-travelled as well’. Later on, you’ll still have much time to read the records of some ancient books, maybe it will benefit you in your cultivation later.”
-It was a lie.
-But lying sometimes was not used as a tool to fool others, but as a means of self-protection.
-After having distributed the harvest, Tang Xiu returned to his room. He turned on the phone and saw that aside from dozens of text messages from Ouyang Lulu, there was no missed calls.
-He felt somewhat disappointed as well as helpless!
-He was waiting for Scarblade Qiang’s call, because he needed someone to help him in brewing wines. Along with the passing time, he would have to face bigger issues and would be in dire need of money, which he was seriously lacking. He lived in the mortal world now, and he could see that the wine market provided a huge opportunity for profits. If he could build a large winery, he was certain that he could make a lot of money out of it.
-He firmly believed that just like fragrant wine fears no dark alley, quality goods need no advertising.
-“Ah, I’m really in short of talented people!”
-Tang Xiu rubbed his forehead. Since he was not yet sleepy, he came over to the window and looked at the outside toward the distance amidst the dimly illuminated dark night. With his good eyesight, such darkness didn’t hinder his vision. He clearly saw a few stray cats roaming on the street, wandering around the trash can nearby.
-“Huh?”
-Suddenly, he recalled about the name list Yuan Zhengxuan gave him, along with the information from the retired special forces soldiers.
-“If I recall, there’s a man named Wang Ming who lives in Cangbei City.”
-Tang Xiu’s eyes blinked and made a decision in a moment. He would see this Wang Ming, and if his character was good enough, he would take him for his uses.
-The next morning.
-The dawn had just come. Tang Xiu carried his carrier and walked to the hotel’s entrance. As he looked outside, he saw Shao Mingzhen and Miao Wentang and asked, “Are the two of you also leaving today?”
-Miao Wentang seemed to be in low spirits as he nodded and said, “Yes. Our purpose in coming here has been achieved, so we’ll return back home. Although we did have got great harvests, we also got heavy losses. After we go back, we’ll have to take care of the families of those fallen men of ours.”
-“Give them compensation. Also, take a really good care of them in the future!” Tang Xiu said.
-Miao Wentang said, “Don’t worry. We’ll do that as we’re also well aware of it. Anyways, since you’ll also go to Cangbei City, we’ll ride you there.”
-"Alright!"
-Tang Xiu nodded. He looked at Miao Wentang’s men opening the SUV’s trunk, so he took his carrier and put it into the trunk.
-"Wait!"
-From a nearby corner, Scarblade Qiang’s voice came.
-Tang Xiu looked at the voice’s direction. He saw Scarblade Qing pulling out his cigarette, throwing it to the ground and fiercely stamping on it. Then, he dashed toward him in big strides. There were dozens of cigarettes’ butts on the spot he was standing. Obviously, he had stayed there for a very long time.
-“Have you thought about it?” Tang Xiu asked with a tranquil expression.
-Scarblade Qiang said, “Yes, I’ve thought about it well. But I wanna know what my salary would be.”
-Tang Xiu pondered for a moment and then slowly said, “You’ll have 10% shares plus an annual salary of one million yuan. But it is under the condition that not only you assume as the director of the winery, you’ll also responsible as a technician.”
+Half an hour later, Tang Xiu quietly left the villa. He didn’t go out from the main entrance but from the back entrance and straightly headed to the small hillside. He bypassed the complex in a circle and came out quietly from the woods.
+With his sharp eyes, he constantly observed the surroundings. Tang Xiu changed his clothes and quickly appeared again near the front entrance of South Gate Town. However, he quickly hid behind a tree and quietly searched the unknown enemies.
+Inside a building, a kilometer away from Tang Xiu…
+Two men were standing before the window and holding a military-grade binocular, observing the buildings in South Gate. One of them was Wang Ming, and there were four other men who were drinking and chatting behind them.
+Wang Ming put his binocular down as he looked at the leaning man, saying, “Chief Wolf, we already investigated the other party’s identity. He’s not an evil man. And even though he’s young, he has such big business and also very powerful abilities. Is it still necessary to keep monitoring him? Besides, he only gave us three days.”
+Wolf Head said, “We did investigate him. But the information is not accurate. Don’t be deceived by his appearance, he’s very sophisticated and out of ordinary. When he took that little girl out of South Gate Town’s front entrance before, he had already sensed that some people were monitoring him. I’m not sure whether he perceived our presence or sensed the presence of another group.”
+Wang Ming was surprised. “There are also other people surveilling on him?”
+Wolf Head pointed to the Northwest direction and replied lightly, “Do you see that small stall on the street selling Liangpi? [1] I bought the noodles from that stall this morning. The seller looks very ordinary, but I’m sure he’s a ruthless person. Also, according to my observation, there were only three people who bought from it yesterday even though the stall was opened all day. Two of them casually took some but they didn’t even pay for it. As for the other one, it was a middle-aged woman with her child, but she didn’t buy anything.”
+Wang Ming’s mind worked and quickly asked, “You mean, they are in disguise and will do something against Tang Xiu?”
+Wolf Head nodded and said, “If my deduction is correct, they should be. I want to see this show. I don’t know whether he will die or those assassins will encounter bad luck.”
+“We won’t help him?” Wang Ming asked.
+Wolf Head replied with a sneer, “If he can’t solve this little problem, what qualification does he have to become our superior?”
+Wang Ming said, “So, if he really can drive away these enemies, are we really going to follow and work for him?”
+“These assassins are lurking in and from the dark. They are very dangerous. If we—Brothers were to come across them, we would also die if not careful enough. _If_ he can solve this, it explains that he’s very powerful. So it’s possible for us to work for him. However, I still can’t figure out why and what for he wants us to work him.”
+Wang Ming nodded and no longer spoke.
+He was also anticipating, looking forward to Tang Xiu’s next actions and performance.
+Wolf Head lifted his binocular again. When he looked at the outside, toward the front entrance of South Gate Town, his brows raised immediately and said with a low voice and strange expression, “Take a look and pay attention to the big tree on the left side, around 65 meters from the complex’s front entrance. I’ve never thought that he would slip out of the villa complex quietly and observe the enemies in secret. Well, he also should’ve realized that there’s something wrong with the Liangpi stall.”
+Wang Ming quickly raised his binocular and could clearly see Tang Xiu moving from the tree to the sideways and heading straight toward the Liangpi stall.
+“Stupid! He already went this far, and if the other party take a direct shot at him, he’ll be dead even if he has ten lives.” After Wang Ming saw the situation, he immediately spoke in a low voice.
+Wolf Head said, "Continue observing.”
+Near the front entrance of South Gate Town.
+Tang Xiu came over to the stall that sold Liangpi noodles. As his sharp eyes looked at the middle-aged owner, he lightly said, “Give me two Liangpi, and pack them.”
+The middle-aged man said with a smile, “Alright, please wait a bit.”
+He glanced quickly to the distant corner as he lifted his left hand to scratch the back of his head. Then, he slowly worked to make Liangpi noodles.
+Tang Xiu himself had released his perception to envelop the radius of 200 meters. He only looked at the middle-aged man’s action, but in the radius of his perception, a man and a woman disguised as a couple quickly appeared within his surveillance scope.
+_“Assassins? Three of them?”_
+Tang Xiu’s eyes narrowed. He was already prepared to act. Regardless of whoever wanted to kill him, he wouldn’t show mercy.
+“Boss, I won’t buy the Liangpi!”
+After having said that, Tang Xiu turned around to leave.
+The middle-aged owner frowned as a dangerous glint flashed from his eyes instantly. In the next split second, his hand grabbed a gun on his waist and aimed the muzzle at Tang Xiu.
+As the finger pulled the trigger…
+“Bang…”
+A gunfire sounded. But the middle-aged owner’s face changed greatly in an instant, because his shot that was supposed to hit, didn’t even hit the target, as even his sight was blurred and lost sight of Tang Xiu.
+"Hiss……"
+Along with the whooshing sound, the middle-aged owner could only feel a cold breath on his neck, as his neck had already been pinched.
+Tang Xiu stood behind him as he whispered near his ears, “Don’t act rashly or I’ll immediately break your neck. Tell me, who the hell wants me dead?”
+The middle-aged owner’s body turned stiff. He wanted to turn around but found that he couldn’t move his neck, causing him to panic. His lips shivered a few times as he replied astringently, “I don’t know. I’m just a hitman. As long as I’m contracted, I receive information on the target, finish them off and take the money.”
+“I believe you. Don’t move. I can tell that the couple over there should also be your comrades, yes? They’re also armed, so that means some people really take me seriously, to think that they even send three assassins to kill me. Tell me, how much did they pay for my head?” Tang Xiu said with a sneer.
+“Five… five million! We were paid five million each. A total of 15 million.” The middle-aged owner replied in a panic.
+“There should also be a middleman between you and your employer, no? Since the three of you got 15 million, I can tell that my head is much more valuable. Gimme the contact of your middleman!” Tang Xiu nodded and said.
+"13814..."
+The middle-aged owner blurted out a cell phone number.
+Tang Xiu casually broke the middle-aged owner’s neck as he used his hand to prop up his shoulder whilst watching the man and woman who were getting closer without batting an eye.
+At the moment, the man and woman were seemingly aware that something was amiss as they directly stopped 20 meters away from the stall.
+“Good vigilance!”
+Tang Xiu smiled coldly. He took the middle-aged owner’s pistol and shot a few bullets toward the man and woman, who were still 20 meters away, without a moment’s hesitation. He hadn’t used a gun before, but since he had his spiritual sense locked on them, his finger pulled the trigger as the bullet instantly hit them.
+Blood sprayed out as though a blooming peach blossom, as bright red flowers bloomed from the man and woman’s foreheads.
+Two shots and two dead.
+Tang Xiu didn’t leave the pistol and straightly stuffed it into his jacket’s pocket. He used his sleeves to cover his face and quickly disappeared to a nearby stall lightning fast.
+“Ah… MURDER!”
+Screams resounding in the vicinity. A young beautiful woman who was carrying a bag heard the gunshot and then saw a man and woman drowned in a pool of blood, causing her to fall into panic. The moment after she shouted, she quickly run away.
+The four security guards at the front entrance of South Gate Town hurriedly rushed out the instant they heard the gunshot sound and flashed toward the direction of the Liangpi stall.
+* * *
+Notes:
 
 
-Scarblade Qiang exclaimed, “One million yuan annual salary? Also with 10% shares? How much money will you invest actually?”
-“I don’t know how much, but I don’t think I can allocate much for the early investment.” Tang Xiu said.
-At the side, Miao Wentang said with a confused expression, “Brother Tang, we’ve transferred one billion to you before and 1.5 billion just now. How come you say you don’t have much money? Besides, listening to your talk just now, you seem to be preparing to settle up a new business. What type of business is it?”
-“Well, it’s winemaking. I want to build winery.” Tang Xiu said calmly.
-Scarblade Qiang was shocked as he watched Tang Xiu and Miao Wentang with a look of disbelief. One billion plus 1.5 billion was 2.5 billion. Such amount was still not enough to be considered a lot?
-Looking at Scarblade Qiang’s expression, Tang Xiu understood what he had in mind as he said lightly, “Anyway, I have a 2.5 billion yuan debt, while I also have just started my company and am in need of additional investment. So I won’t be able to invest much funds for the early phase of building a winery. But at least, it would be around 100 million yuan.”
-"Hiss…"
-Scarblade Qiang sucked in cold air upon hearing this.
-An early investment of 100 million was just only a small investment? How big the winery this Boss wanted to build, and how large this liquor business he really wanted?
-Miao Wentang looked at Tang Xiu with a strange expression and probed, “Brother Tang, if you’re really short on money, I’ll think of a way. Gimme a couple of days so I can gather several hundred million yuan. Anyways, how about I buy some of the shares from you? I won’t meddle with the management, and will only get my dividends from the shares. How about it?”
-Shao Mingzhen quickly said, “I’ll also prepare one hundred million to buy shares.”
-Scarblade Qiang’s body was trembling. He was thinking about the promise Tang Xiu gave him about 10% of the shares. Such an amount was enough for him to have a well-off life for good. 10% of 100 million was 10 million, and if it was added with several hundred million again, then he would become a millionaire quickly.
-This… could this be what the Heavens say that good people will have good retribution?
-However, the reply from Tang Xiu astounded him.
-“Both of you, you can always contact me at any time if there are other adventures in the future. But you can forget about things related to business. I’m a businessman myself.”
-Looking at each other with dismay, Miao Wentang and Shao Mingzhen could only smile wryly. They had a hunch that the winery Tang Xiu was planning to build was definitely not simple. He was highly likely to have many means that could make this liquor business bigger and great. And such a kind of opportunity apparently had just slipped away from them.
-Tang Xiu looked at Scarblade Qiang and said, “Anyways, what’s your name? I don’t know how I should address you!”
-Scarblade Qiang quickly said, “Boss, I’m called Dai Qiang. But you can also call me Scarblade Qiang or Little Qiang if you want.”
+In the building a thousand meters away, Wolf Head and Wang Ming could see clearly what was happening in the Liangpi stall through their binoculars. They had never thought that Tang Xiu would kill very decisively, he even dared shoot and kill in today’s society which was governed by law.
+"He’s good and very smart!"
+A splendor flashed from Wolf Head’s eyes, looking at Tang Xiu’s back as he disappeared.
+“Huh? Why do you say that?” Wang Ming asked with knitted brows.
+Wolf Head said indifferently, “He broke the neck of that stall’s owner, grabbing his pistol, shooting and killing the other two hitmen. But he didn’t throw the pistol away but took it with him. Also, did you see his footsteps? He’s running with the tip of his toes, which means he’s perfectly aware that once the cops arrive at the scene they will carry out the investigation. And the most basic step of investigation is to scan the footprints on the ground. In addition, the fact that he was seen going out of the front entrance of South Gate Town before will be found in the police’s investigation. And if his footprints were to be compared with the ones at the scene, then he will be exposed.”
+Wang Ming nodded and exclaimed in admiration as he said, “Damn, to think that he didn’t enlist in the army, it’s really a waste of talent.”
+Wolf Head shook his head and said, “No, he’s not suitable to be a soldier.”
+“Why is that?” Wang Ming asked in surprise.
+Wolf Head replied, “He’s too ruthless, and won’t stop at nothing. As such, he’s not suitable for the military discipline. Once he joined the army and become a soldier like us, he will create big troubles.”
+Wang Ming nodded and continued asking, “Then, what should we do next? Cooperate with the police to arrest him?”
+Wolf Head looked deeply at Wang Ming and replied with a cold and detached expression, “Why should we? We’re no longer the government’s tools. We’ve been stripped off our uniform, there’s no need to involve ourselves with this. Don’t forget that we have shaken off the people who were tailing us, which even made us enter Star City secretly. Do you want to expose our whereabouts again?”
+For a moment, Wang Ming fell into silent as he replied with a bitter expression, “I know. If we are to appear, we will definitely become the target of the state’s monitoring!”
+Wolf Head said with a sneer, “We’ll see Tang Xiu’s next moves. If he can get through this hurdle perfectly and there’s no more trouble following, then it proves that he has the capital and abilities, and is worthy of us following him. If he gets into trouble and cannot meet my expectations, then every one of us will go home.”
+“Understood!” Wang Ming nodded silently
+Wolf Head was also silent for a moment. Then, he turned around as he put his binocular on the table. With a deep tone, he said, “Continue the surveillance here, I’ll go out first.”
+“Chief Wolf, you’re personally going to investigate him, aren’t you? This guy is ruthless and merciless, if something goes wrong and he acts against you….“ Wang Ming quickly said.
 
-Tang Xiu casually replied, “Since people in your circle have been calling you Scarblade Qiang when you were socializing with them, so I’ll call you the same! Anyways, I will soon leave Qingshan Town and go to Cangbei City as I still have something to take care of there, and then go back to Star City afterward. So, are you going to go with me now or you still have to take care of your things first?”
-“I’ve arranged everything yesterday. I’ve also talked to my wife. Once I’ve settled in Star City, I’ll be taking her and our child there and let my son study in Star City.” Scarblade Qiang replied.
-“Okay, when your son has arrived there, I’ll help you arranging the school for him.” Tang Xiu said.
-With a grateful expression, Scarblade Qiang said, “Thanks a lot, Boss.”
-Tang Xiu waved and said, “Let’s go now!”
-Looking at Miao Wentang, Shao Mingzhen, as well as their men, Scarblade Qiang was secretly feeling timid and dread. He indeed was used to robbing others, and his hands were even covered with blood. But he didn’t know as to why Tang Xiu, Miao Wentang, Shao Mingzhen or even those strong men gave him a dangerous feeling.
-As he looked at Tang Xiu who was about to board the car, he spoke with a low voice, “Boss, should I drive my car and follow you from behind?”
-“You have a car?” Tang Xiu asked.
-Scarblade Qiang pointed to a Toyota Land Cruiser Prado that was parked on the nearby roadside and said, “That’s my car.”
-Tang Xiu thought for a moment as he looked at Miao Wentang and said, “Since he has a car I’ll take a ride on his! Let’s drive to Cangbei City and part ways there.”
-“Alright!”
-Miao Wentang and Shao Mingzhen nodded.
-Upon hearing Tang Xiu’s words, Scarblade Qiang immediately became a bit attentive to please him. He ran to the SUV’s trunk with one of the strong man as he reached out his hand to take Tang Xiu’s travel bag.
-“Let me do it!” Tang Xiu also came to the trunk and calmly said.
-Scarblade Qiang forced out a smile and said, “Boss, let me do the little things such as carrying your bag!”
-After having said that, his hands moved to carry the travel bag.
-“Ugh… what’s this?”
-Scarblade Qiang was stunned. He had exerted quite a bit of strength and even tried lifting the bag twice. At this moment, he even used all of his strength, but he could only lift the bag a few centimeters high. Since he released his grip, the bag fell again onto the trunk.
-Tang Xiu patted his shoulder as he said with a smile, “Well, let me do it!”
-Swish!
-Scarblade Qiang’s face instantly turned square, red and full of embarrassment upon seeing Tang Xiu carrying the bag easily, as though it was as light as a feather. He wanted to be attentive, wanting to flatter him, but he ended up ridiculing himself big time, just like a foolish person who made a fool of himself.
-However, he was secretly shocked inside. Even though he didn’t know what was inside the travel bag, but the strength Tang Xiu showed him made him secretly flabbergasted. As he watched as for how Tang Xiu did that effortlessly, he daresay that Tang Xiu was definitely a few times stronger than him- he could even be compared to Hercules!
-“Boss, what did you put in the bag? How could it be so heavy?” Scarblade Qiang asked with a stammering manner to conceal his embarrassment.
-Tang Xiu replied lightly, “Only two stones.”
-Stones?
-Scarblade Qiang stared blankly and simply couldn’t say anything inside. He was truly unable to think of anything as to why these rich, Big Bosses would have such a distinct hobby. They certainly had a well and good daily life, but they ran to Qingshan Town only to get two stones back home? Did these people had nothing to do in their idyllic life and wanted to have some fulfillment in doing so?
-In Cangbei City…
-Stone Road of Banner Pass District. At Grand Fortune Auto Garage…
-Wang Ming took the envelope the Boss handed him. He didn’t see the amount of money inside and stuffed it into his greasy auto workwear. After he retired from the army, just like his other comrades-in-arms retired, he declined the job arrangement provided by the country and returned to his hometown. He was not without family, and had a younger brother who had just grown up.
-Unfortunately, his younger brother was neither well-educated nor was had any skills whatsoever. Ever since their parents died in a traffic accident a few years ago, nobody managed this younger brother of his, so he frequently hung around with some delinquents and thugs. Because he ditched school for too many times, the school expelled him and he ended up becoming a rascal and unemployed vagrant.
-He already did what he could to teach him. Scolding, and even hitting him, but to no effect. Now, he could only force him to work in the same place and became mechanics in this auto garage. Now that he could put him under his eyes, it became easier for him to control his attitude.
-“Big Brother, give your money to me.”
-After Wang Xiang stuffed his share of payment into his pocket, he took a plier and came over in front of Wang Ming as he stretched his hand directly and asked the money.
-Wang Ming frowned and replied dimly, “What do you need the money for?”
-“I wanna buy a new phone.” Wang Xiang said.
-For a moment, Wang Ming was silent. He glanced at Wang Xiang’s pocket and said, “I recall you already bought a new phone last month. That was more than 3000 yuan.”
-Wang Xiang snorted coldly and said, “That one isn’t up-to-date! Can I not buy a new, good one? So, will you give the money or not? You never give me other alternatives to make some money!”
-Wang Ming sighed inside. He took the payment he just received from his pocket and gave it to him. He was sure that his younger brother—Wang Xiang definitely wouldn’t use the money to buy a new phone, but hang around having meals and drinks.
-“I’ll request a day off today.” Wang Xiang left these words and prepared to leave after taking the money.
-At this moment…
-A Toyota Land Cruiser Prado stopped and parked in front the auto garage. Tang Xiu got off and recognized Wang Ming, who was standing in front of the garage. He had seen Wang Ming’s photo on the name list Yuan Zhengxuan had shown him before.
-“Wang Ming.”
-Tang Xiu came over and called him.
-With indifferent expression, Wang Ming glanced at Tang Xiu and said, “I am. Who are you?”
-Tang Xiu said, “I’m looking for you. I know your past so I hope you can work under me. About the treatment, I can assure that you won’t be disappointed.”
-Wang Xiang, who was about to leave, suddenly asked quickly with bright eyes upon hearing Tang Xiu’s words, “What treatment can you give to my brother? How much money can you give monthly?”
-“Wang Xiang, shut up!”
-Wang Ming shouted at him in a low voice.
-Wang Xiang let out a resentful snort and said, “Big Brother, do you know how much money we get as mechanics in this garage? The pay’s not even enough for me to drink a few wines! For whatever it's worth, you were a soldier who had carried a gun, don’t you think you deserve to have a good life? Maybe you never thought to have one, but I do!”
-Tang Xiu looked at him and said indifferently, “So, you turn out to be his good-for-nothing younger brother eh? But what you said have its own truth. You can live and abide by the rules, but oftentimes doing so will only make the talented people successful. Even if you were once a soldier who carried a gun, killed people and had your hands covered with blood, but it doesn’t mean that you must live in the past. After all, life will still force you to look back to face it.”
-Wang Ming’s brows wrinkled deeply. He stared at Tang Xiu and asked with a sinking-deep tone, “Who the hell are you?”
-“A businessman! Someone who can give you a different life. So, should we talk about the conditions?”
-With a cold and detached expression, Wang Ming shook his head. Then, he said dully, “No matter what conditions you spit out, you won’t have what you want, neither will I work for you. Leave now.”
-Tang Xiu said with a ruminating tone, “I thought that real soldiers know how to seize and cherish the opportunities. I used to think that they are mature and stable, having meticulous ways of thinking, with excellent forbearance and vision. But since you don’t even want to hear the conditions I’m about to give you, it means that you don’t even have any good spirit nor have a great goal in life. Your eyes have been shrouded by glory and pride. And that very pride of yours has been etched deep in your bones, causing you to handle matters with a rigid and stupid manner just because you heard lines that are not pleasant to your ears.”
-Wang Ming said with a sneer, “What the hell do you know about me?”
-Some disappointment revealed on Tang Xiu’s face as he shook his head and said, “I indeed know nothing about you. To tell you the truth, I originally had high expectations of you, but the facts now are much to my disappointment. It seems that I don’t need to find your team leader—that legendary Wolf Head. Since he takes a person like you under his wings, that means that he’s also a waste.”
-Suddenly, green veins protruded on Wang Ming’s forehead as he furiously glared at Tang Xiu and shouted, “SHUT THE FUCK UP! Chief Wolf is not someone you can humiliate!”
-Tang Xiu replied with a sneer, “What? Did you feel wronged being addressed as a trash by me? Shame? Do you even deserve to be humiliated?”
+“If he misunderstood me and I don’t even have the ability to defend myself, I suppose that he won’t be in need of such garbage like us to begin with. Alright, wait here until I come back.” Wolf Head replied with indifference.
+The trees might long for peace, but the wind will never cease, just like the world will change whether one wants it or not.
+Tang Xiu himself was also unable to clearly figure out the people who hated him to the bones, whom even sent three powerful assassins to kill him. But he was no pushover. He had always lived with the creed that if someone didn’t mess with him then he also would do the same toward them. After he left the Liangpi stall, he didn’t return to South Gate Town, but circled around to the other place and hid. Then, he took out his cell phone and dialed the number the Liangpi stall’s owner gave him.
+"Tut, tut"
+The call was connected but the other side didn’t speak.
+After ten seconds of silence, only then did Tang Xiu slowly speak, “I’m Tang Xiu, I’ll give ten times the payment of whoever gave you for the answer I want.”
+“They… are they dead?” A low and deep voice finally came out of the phone.
+“Yes! All of them.” Tang Xiu said.
+The man on the phone fell silent again. This time, he was silent for half a minute before he slowly said, “Transfer 200 million yuan to my account. I don’t want more trouble, so I want you to sort this out properly. The number of the account is…”
+Tang Xiu squinted his eyes and then dialed Kang Xia’s number. He just gave her 300 million, and the money hadn’t been used yet. Then, he immediately said, “Transfer 200 million to this account immediately, and fast!”
+Kang Xia smiled wryly and said, “Huh? What do you want it for, Boss? We only have a little money and it’s already very difficult, and you…”
+Tang Xiu interrupted with a deep tone, “No more talk and don’t ask, just immediately send the money."
+“Understood!”
+Kang Xia complied quickly and sent 200 million yuan into the bank account according to Tang Xiu’s order.
+In the afternoon.
+The Property Management Office just sent an express delivery to the villa. Tang Xiu, who was waiting for the news, quickly took the delivery and then read it. The contents caused a dense murderous intent inside his heart to arise.
+Zhang Deqin?
+Tang Xiu remembered this woman’s appearance. When he went to kick the Rising Dragon Martial School’s plaque and took 100 million yuan. The next day, Zhang Deqin also sent a video, saying she was not in the town so she really couldn’t see him. She solemnly apologized to him and guaranteed that she wouldn’t cross with him again.
+It was only a small grudge!
+Tang Xiu didn’t take it seriously and didn’t put it to the heart. Since the other party had apologized he also didn’t want to go further as to clean up the siblings. But he had never thought that this Zhang Deqin would unexpectedly seek revenge over small grudges. To think that she even spent 20 million to hire assassins to kill him…
+That night.
+Tang Xiu quietly went to Long Zhengyu’s residence. The night was already late, but since the entire building was still brightly lit, he was sure that Long Zhengyu hadn’t slept yet. As he released his perception, he was at a loss whether he should be amused or cry upon seeing that Long Zhengyu was “working” on the bed with more than one opponent at this moment.
+"Damn, this guy …"
+Tang Xiu was hiding under the dark shade of the tree in the villa’s courtyard. After staying motionless for ten minutes, he saw that Long Zhengyu’s fight had been finished, only then did he pick up a stone and strongly threw it toward the bedroom’s window on the second floor.
+“Kacha…”
+The bedroom’s window glass on the second floor was smashed.
+On the soft bed, Long Zhengyu had just stood up with a satisfied expression and was about to take bath. When he suddenly saw that his bedroom’s window glass was smashed, his complexion changed greatly and quickly pulled over his pajamas and put them on. He ran to the window and looked outside and shouted at the same time, “WHO IS IT?!”
+Tang Xiu came out of the shade as he faced him and waved, and then quickly retreated.
+After seeing Tang Xiu clearly, Long Zhengyu’s complexion was blank for a moment. Never in his wildest dreams had he ever expected that the one who would smash his villa’s window turned out to be Tang Xiu, because he had never told him this address.
+However, he still went out quickly. As he looked at Tang Xiu under the shade of the tree, he said with a wry smile, “Brother Tang, have I ever done anything that offended you? It’s very late. You don’t sleep, yet you come to my house only to break my window, what’s up with you?”
+Tang Xiu said, “I have something that needs your help with.”
+Long Zhengyu rolled his eyes and snapped, “Instead of smashing my house’s windows, why didn’t you call me directly? What’s that for? Damn. Fortunately, you smashed it just now. If it were a few minutes earlier I could’ve ended up being impotent because of fright.”
+Tang Xiu replied with light laugh, “Well, I still have the drugs to treat impotence.”
+Long Zhengyu was at a loss whether he had to be angry or laugh as he said, “Alright, let’s cut the crap. Don’t boast. Quickly tell me, what is it that you want my help?”
+A colorful glint flashed from Tang Xiu’s eyes as he asked, “It’s about your Long Family and this Star City’s Zhang Family. Do you have some discord or grudge with them?”
+Zhang Family?
+For a moment, Long Zhengyu stared blankly. Then, he shook his head and said, “We have no grudges, and it could be said that we’re only rivals even though there have been some small frictions between us in secret.”
+Tang Xiu was silent for a moment before he asked, “What will the Zhang Family do if Zhang Deqin and Zhang Yongjin die?”
+Long Zhengyu froze, and then asked with a horrified expression, “What do you wanna do exactly?”
+Tang Xiu replied with a cold and grim expression, “The siblings must die! So, answer me.”
+With a disbelieving expression, Long Zhengyu looked at Tang Xiu and spoke in a low voice, “Brother Tang, you’ve got think this through carefully. The Zhang Family has resided in Star City for decades and has deep roots here. Even if my Long Family wants to affront them, we’ll also pay quite the price. Once you killed them, the Zhangs surely will go all out to retaliate.”
+Tang Xiu replied, “The reason as to why I come to you is also considering the consequences of suffering retaliation from the Zhang Family. I only want to ask you now, if Chen Zhizhong and your Long Family were to join forces in this, will you able to deal with them, or not?”
+Long Zhengyu thought for a moment as he said with a wry smile, “That will be very difficult also. At the most, we’ll only be able to beat them.”
+Tang Xiu pondered for a moment and then slowly said, “What if external forces were to be involved? Is it possible?”
+Long Zhengyu was surprised, and said, “You mean other forces from outside of Star City? Such as Chu Yi’s and Bai Tao’s families, or the Ouyang Family?”
+Tang Xiu said, “Yes, if they can also be counted.”
+Long Zhengyu was excited inside and quickly said, “If they’re willing to join hands in this, the Zhang Family will surely be exterminated. However, Chu Yi’s and Bai Tao’s families are from Beijing. They also have a lot of hostile forces who are vying at them. If their two families are on the big move, the other families who are in hostile relationship with them surely will seize the chance. The Ouyang Family might be able to participate. But do you think Ouyang Lulu will be able to call the shots?”
+Tang Xiu said, “We needn’t bring Chu Yi and Bao Tao in his matter. I’ll deal with the Ouyang Family, but I need you to gather a thorough information about the Zhangs in these 2 days. I’ll see you in the next two days and we’ll talk about this again.”
+“No problem, I’ll give you the complete information as fast as possible. But you must not, by any means, make a move on them earlier. If the Zhangs have really provoked you, I’ll send some people to pack up the Zhang siblings, to make them properly apologize to you, and then you can vent your anger on them.”
+Tang Xiu shook his head and said, “No need.”
+After having said that, Tang Xi no longer stayed as he jumped over the wall under Long Zhengyu’s gaze.
+At the dusky trail in the spacious block.
+Tang Xiu had left Long Zhengyu’s residence, but the foreboding crisis inside his heart was yet to disappear. Although he had killed three hitmen, but he still sensed that someone was watching him in the dark. However, even after he used his perception to envelope the surrounding, he still couldn’t find the enemy’s presence.
+_"It’s an expert!"_
+Tang Xiu was sure that the other party was absolutely an expert in surveillance. Otherwise, they wouldn’t be able to keep a constant distance from the beginning and secretly spying on him.
+Was it in the park?
+Tang Xiu’s footsteps stopped at the front entrance of the park. His mind and perception was racing; and along with it, he leaned on the side wall and immediately climbed over it and entered the park to disappear amidst the woods. He needed to pull out this person who was hiding in the dark or else he wouldn’t be freed from worries and unable to have a peaceful time.
+
