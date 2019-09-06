@@ -1,273 +1,269 @@
-Hundreds of meters away…
-Wolf Head put down his binoculars as a glint of vigilance flashed from his eyes. He could tell that Tang Xiu had realized something but was unsure if he himself had been found or not. Cautiously, he quickly circled to the other side of the park and quietly approached
-A few minutes later…
-Wolf Head appeared in the grove. As though a shadow in the dark, he quietly arrived at the wall where Tang Xiu was moments before. As he squatted on the ground, he quickly observed the footprints on the ground. It seemed to be heading to another direction.
-“Huh? It’s gone?”
-He lost Tang Xiu’s footprints under a tree. Just as he turned to search again, his complexion greatly changed as he suddenly dashed to bolt away.
-Whoosh…
-A figure fell from above in front of him.
-With a cold and detached expression, Tang Xiu looked at Wolf Head. Even though he had a gun strapped on his waist, he didn’t have the intention use it. To him, his own martial strength was his biggest tool for killing.
-“Following me all the way here was quite hard, wasn’t it?”
-Wolf Head instantly retreated a few meters back. But he didn’t turn around to run away, instead, he stared at Tang Xiu as though a hungry wolf as he said with a sinking tone, “Only a few people are able to track me back in the entire world. I don’t know how you were able to find me!”
-“Someone who has experienced many life and death situations will develop a particularly keen sense of danger. The murderous intent within you is very heavy, which says that the number of people who have died in your hands was at least 100. Judging from your reaction when you observed the footprints and retreated back at the same time, I can tell that you’re also someone who has been walking on the path of death.” Tang Xiu said apathetically.
-“I’ve investigated you. You’re just an ordinary student from the information I’ve gotten. Even if you have some powerful aspects compared to others, you just graduated from high school and have just started your own business. But, I can’t fathom your skills as well as how you can kill without even batting an eye. I’ll never believe that someone is born with such great strength nor I believe that one could have such inborn cold-blooded disposition. Can you explain this to me?” Puzzled, Wolf Head replied.
-“You’re not qualified.” Tang Xiu shook his head and said.
-Wolf Head squinted his eyes. His body tightened instantly as he spoke with a sinking tone, “Regardless of if I have the qualification or not, it’s still unbeknownst to us. If you can win me, I’ll consider agreeing with your condition.”
-_My condition?_
-Tang Xiu was surprised and distracted for a moment.
-At this moment, Wolf Head suddenly moved as his fist flew at him. As he lifted his arms, his fist flew, creating sharp and whooshing sounds of wind and instantly smashed at Tang Xiu’s face. His speed already surpassed that of a human’s- even Tang Xiu himself dared not to take it lightly.
+ roar came from the corridor, followed by fierce gunshots immediately afterward, “DON’T LET THEM RUN! KILL THEM!”
+Dozens of pirates rushed in, but after the door was kicked open, nobody was found inside and all the windows were opened.
+Two minutes later.
+Tang Xiu and the others gathered in the lush woods behind the castle. Apart from one man who had a bullet wound in his arm, the rest were uninjured.
+Patting the injured man, Tang Xiu whispered, “How’s your injury? Is it serious?”
+“It’s fine!” the man shook his head.
+Turning his head to Wolf Head, Tang Xiu asked in a deep voice, “Who is that pirate who dared to kill Duffsky? Is he not afraid of the other pirates killing him?”
+“That’s the second leader of the Bloodfish Pirates. This accident is due to my poor plans since I forgot that these pirates are a ruthless and heartless bunch. The other pirates won’t blame him for killing Duffsky. They are not idiots, they surely know that they will likely be killed by us after surrendering,” said Wolf Head.
+“Tonight’s action has failed, so we’ll withdraw immediately. I can’t afford to lose our people to some pirates. If they have the courage, they will continue staying inside the castle. But in any case, we’ll continue the attack in the early morning,” assented Tang Xiu with a nod.
+“Boss, your next plan is….” Said Wolf Head curiously.
+“My plan is very simple,” said Tang Xiu and grimly smiled. “We’ll find every opportunity to sneak raid those pirates constantly. Kill them one by one and as many as we can. All in all, I will kill them and make them so terrified that they’ll run away. As long as they come out from the castle, they’re dead.”
+The rest looked at each other and assented with nods. They similarly loathed these evil pirates and had no hesitation to slay them.
+Late at night.
+Two kilometers away from the castle. Tang Xiu and the rest hid amidst the boulders and trees, quietly watching the castle. They heard sounds of gunfire coming from that side and the roar of the pirates.
+The sounds were getting closer and closer.
+“Ten men with submachine guns about 650 meters away are searching for us,” standing behind the boulder, Wolf Head poked his head out to probe and whispered.
+Tang Xiu motioned the Mo brothers as the two quietly slipped into nearby trees immediately. He then said, “Wolf Head, immediately attack them once they reach the vicinity. Do keep in mind to assign the task well and strive to decimate them completely.”
+"Yes!" Wolf Head replied in a low voice.
+Seven or eight minutes later.
+Ten armed pirates had caught up to them, but they didn’t use flashlights because the enemies were hiding and they didn’t want to be attacked in the dark.
+Whoosh! Whoosh! Whoosh!
+Several silhouettes silently appeared near the ten pirates. As daggers stabbed into their bodies, more ferocious attacks were launched as they screamed.
+Within just five or six seconds, the ten pirates didn’t even have time to shoot and were all killed, giving ten submachine guns to Wolf Head and the others.
 
-“Go back!”
-However, Tang Xiu’s speed also some points faster than him. Using his fist to meet head-on with Wolf Head’s, his body shook, but it didn’t push him back, whereas Wolf Head stepped back for 7-8 steps. Only after retreating staggeringly was he able to stabilize his body.
-“What a strength!”
-Wolf Head’s right hand was trembling as he looked at Tang Xiu with disbelief and exclaimed in astonishment.
-“Your strength is also quite powerful. I didn’t expect yours also exceed a thousand pounds. If my guess is right, you should be a Qigong practitioner, right? In addition, you also have cultivated your True Qi and reached the Small Accomplishment level. Even those so-called martial arts grandmasters could die within a short time if they were to have a life-and-death fight with you.
-Wolf Head admittedly smiled. His body dashed again toward Tang Xiu. And this time, he was still waving his fist as before and punched at Tang Xiu’s face. However, his footwork and stance were different from before. The moment his fist was about to hit Tang Xiu, he instantly rotated his footwork and changed into a peculiar direction as his punch swung toward Tang Xiu’s left next in a strange trajectory.
-"Hmph…"
-Tang Xiu coldly snorted, his hands moved lightning fast and instantly blocked Wolf Head’s strike. Either close combat fight or fighting experience, he was thousand times stronger than Wolf Head, for he had experienced countless battles. The neurons and nerves all over his body had all entered a combat state.
-Along with the retracting movement of his footwork, Wolf Head tried to strike again, but ultimately could resist no longer. He had no choice but to go all out to withstand and dodge Tang Xiu’s attack.
-"Bang…"
-Wolf Head’s arms were dislocated with Tang Xiu’s Shadow Kick. He paled as an acute burning pain assaulted him as he staggeringly moved backward and shouted loudly, “Stop!”
-Tang Xiu stopped attacking. He stood about 4-5 meters away from him as he said indifferently, “You still have your Mitsubishi army knife no? Why don’t you use it and then talk?”
-Wolf Head forced out a smile and shook his head with a sigh, “Wang Ming said that you’re very strong and he had no chance to even fight back. He was trained personally by me, so I know what he’s capable of. I didn’t believe him at first, but now I have to admit that you’re very strong. My arms are dislocated, I’m not able to fight anymore.”
-“So, you’re the Wolf Head?” Tang Xiu asked with knitted brows.
-“Yes!” Wolf Head replied with a wry smile.
-“Very punctual you’re for coming to Star City within the three days deadline. I want to ask you. Are you related with those assassins?” Tang Xiu relaxed his nerves and asked.
-“No. After we investigated you, we discovered that you were also under the surveillance of another group. Those people are clearly well-trained assassins, two of them were not even from our country. We’ve investigated about them. They came from abroad with the sole purpose of killing you.” Wolf Head shook his head and replied.
-“So, your intention was to use them to test my strength, yes?” Tang Xiu said.
-“I did. If you can’t even solve this hurdle, what qualifications do you have to become our superior?” Wolf Head admitted and said.
-“Then, what do you think after you’ve personally experienced my strength?” Tang Xiu nodded and said.
-“I only have one request. If you can find the mastermind behind this and thoroughly solve this problem, our team will work under you.” Said Wolf Head.
-“So be it!” Tang Xiu said.
-“However, I ought to tell you beforehand. We might bring some troubles once we join you. We have quite particular identities, and it’s very difficult for average people to face us, so we’re also under surveillance- some people started spying on us the moment we came to Star City. We too have the intention to shake off these people and quietly finish them off.” Wolf Head replied with hesitation.
-“People from the state?” Tang Xiu’s brow pricked and inquired further.
-“Yes, special task force.” Wolf Head nodded and said.
-“No problem for me. You all have already been stripped off from your previous identities. Besides, your assignment won’t be in the mainland.” Tang Xiu said.
-“We’ll go abroad?” Wolf Head asked with a surprised expression.
-“Yes. I’ve bought a private island in the Pacific Ocean. And I need some people to protect the fort there. You have sufficient strength and should be capable enough of keeping the security there.” Tang Xiu said.
-With a surprised expression, Wolf Head looked at Tang Xiu and said with a low voice, “Are you going to create your own private armed forces?”
-"Yes!" Tang Xiu nodded with a deadpan expression.
-“It’s fine with us! This is our specialty to begin with. But, can you tell me what kind of treatment you’ll give us?”
-“It depends on the type of relation you’ll have with me! If you truly become my people, and if you can become a death squad hell-bent on following my orders, whatever it is, naturally, you’ll have the best treatment you can think of. You can be sure to even have your dreams come true. But it’s also fine if you want to become one of the ordinary ranks under me. You’ll have good treatment, but surely, with some disparities with the previous ones.” Tang Xiu said lightly.
-“You’re very ambitious, it seems. Your condition and your ambition kinda makes me scared.” Wolf Head replied with a deep tone as he looked at Tang Xiu deeply.
-Tang Xiu replied with a sneer, “If that’s not enough for you, then, when you’re able to destroy this planet with only one punch, nobody will be able to threaten you by then.”
-Wolf Head couldn’t help but shake his head and smile.
-Destroying Earth with only one fist? What was this? A damn joke? If one is able to destroy the Earth with only a punch, isn’t he able to traverse the universe freely?
-After chiding him inside a few times, he looked at Tang Xiu and said, “For now, what kind of troops we want to be is not important, for you must first prove your strength before we talk again.”
-“Well, just wait for the show.” Tang Xiu turned around and walked toward the park’s fence.
-Half an hour later…
-Inside a building a kilometer away from South Gate Town. The door was knocked gently seven times in a rhythmic sound. After that, the door was opened from the inside.
-Inside the room...
-Wang Ming was still with the binoculars in his hand as he looked at Wolf Head, who was coming inside with a pale face, and then asked with a surprised expression, “What happened to you, Chief?”
-“I just exchanged some blows with Tang Xiu. You did say the truth, he’s truly powerful. The one and only expert I’ve never seen in my life. Alright, help me fix my dislocated arms now!” Under the gaze of the five men inside the room, Wolf Head said with a bitter and astringent smile.
-The rest of the men inside the room were greatly taken aback. They looked at Wolf Head’s dislocated arms with disbelief, and their heartbeat sped up as well as palpitated. Wolf Head was the strongest amongst them, but he was also unable to contend with Tang Xiu- even have his arms were dislocated by him. Then, to what extent Tang Xiu’s strength reached?
-At present…
-Amongst them, perhaps only Wang Ming knew Tang Xiu’s strength. He forced out a bitter smile and quickly helped Wolf Head connect his arms’ bones and said, “Actually, I’ve already guessed that Chief Wolf isn’t Tang Xiu’s opponent. That fellow’s speed, strength and reaction speed can only be called as terrifying. Even if I go all out I’m still unable to touch his sleeves.”
-“He’s very strong!” Wolf Head said.
-With hesitation, Wang Ming asked, “Chief Wolf, what have you discussed with him?”
-“I’ve explicitly told him that if he can completely solve this problem and prove his strength, then we’ll follow him later. If he can’t, then it’s not worth it for us to do so. Also, he told me that we won’t stay in the mainland once we work under him.” Wolf Head replied.
-“Uh, we won’t stay in the mainland? Where will we go then?” Wang Ming asked with a confused expression.
-“He said that the he had bought a private island in the Pacific Ocean, so he wants us to keep the security of the island. He wants to set up his own private army.” Wolf Head said.
-“Private armed force? What is he planning to do?” Wang Ming asked in wonder.
-Wolf Head shook his head and said, “I don’t know about it either.”
+Tang Xiu kicked the corpse of one of the pirates to the side and coldly looked toward the castle. According to Wolf Head’s number count, the number of pirates in the castle should have fallen to less than 100. With ten more of them killed now, the number of pirates lessened yet again.
+Soon, the two brothers—Mo Awen and Mo Awu returned with ten guns. They dropped the guns around Tang Xiu and then wiped the blood off their faces, saying, “We also found ten pirates in another direction, so we cleaned them up and also robbed their guns. Anyways, Boss. Should we rush ahead again?”
+A smile appeared on the corner of Tang Xiu’s mouth as he shook his head and said, “No need to hurry. We’re now in the dark while the enemies are in the light. We just need to monitor the entire castle. Once some people came out, kill them. I must make those remaining bastards scared shitless, letting them know what fear is.”
+“How about me and Awu secretly sneak into the castle to kill some more tonight?” asked Mo Awen.
+Tang Xiu laughed, “No problem. Of course, I will also sneak in to kill some of them. Wolf Head, you’ll be responsible for monitoring the entire castle. Can you do it?”
+Forcing out a wry smile, Wolf Head said, “This castle is rather large and there are a lot of spots we can use to sneak in. We’ll try our best though.”
+“Don’t worry, they won’t dare to come out so easily either. Even if they do, they will probably come out together,” said Tang Xiu with a smile.
+“It shouldn’t be a problem then. The twelve of us will hold one spot each and seal off all the easy paths down the roads descending from the hill,” said Wolf Head.
+Inside the castle.
+Ingelund was holding a submachine gun as he quietly sat in the palatial hall. On the floor in front of him were 78 dead bodies into a pool of blood. Those were the male civilians caught by them. He was in a dire urge to kill, for only blood could stimulate him so that he wouldn’t fall into fear.
+The number of pirates in the castle which numbered 242 men had been reduced to only 96 after several losses, while the other party were but only a dozen.
+They were experts. And powerful ones at that!
+He was also once an expert—an ace of the United States’ marine corps. As a result of having a conflict with someone in the army and due to him killing the other party, he deserted and escaped the army. Years after escaping he eventually took shelter under Duffsky.
+However, he had never once seen such intrepid team. Even the top-notch soldiers in the Marine Corps he was enlisted in that year perhaps couldn’t be compared to the other party.
+“Second Chief, the Third Chief—Hutu sent two searching teams, a total of 20 men, and they haven’t come back until now. Could they gotten in an accident?” A burly, ugly and ferocious looking man strode in from the outside carrying a submachine gun and dozens of magazines on his waist.
+Ingelund stared blankly before he suddenly jumped up from the sofa with eyes almost able to kill. He grabbed the big man’s clothes and angrily shouted, “What did you say? Hu Tu sent 20 brothers to seek the enemies?”
+“Yes!” the burly man was somewhat frenetic and quickly replied.
+“How long has it been?” Ingelund roared.
+“About an hour,” said the burly guy.
+Releasing the burly man, Ingelund paled and slightly shivered inside. He had once undergone regular army training and went to many countries to carry out secret missions. Many times had he survived through the forest of guns and hail of bullets, so he knew perfectly well… what the true strength of an elite was.
+These enemies were fearsome!
+Sending out 20 brothers; Hutu had just sent them to die.
+Fuming with anger, Ingelund said, “Where the fuck is Hutu?”
+The burly man said, “The third leader is deploying a defensive perimeter and assigning some brothers to stay hidden and some to stay visible as sentries outside. Thus, we’ll be able to discover the enemies once they approach this area.”
+Clenching his fist, Ingelund strode out of the hall and quickly found Hutu. Without any words, he dashed toward Hutu and grabbed his ionized-scalding long hair, forcefully pulling it down and knee kicking Hutu’s abdomen, directly sending him into a shrimp-like shape as his body curled up and twitched on the ground.
+Following that, he ferociously kicked Hutu’s body several times and angrily cursed, “You—fucking goddamn idiot, didn’t you see the strength of the enemy clearly? We have more than 200 people, yet with only a dozens of men they killed more than 100 of us. Now tell me, have you seen this kind of enemy before, huh?
+“Yet, you unexpectedly sent 20 brothers without my permission. You—fucking bastard just sent those brothers to die. I dare say those 20 brothers have already been killed near the castle by now.
+“What a fucking stupid pig! You know nothing about tactics because you—asshole decided to send out the remaining brothers, causing us to receive great casualties yet again. You’re no longer the Bloodfish Pirate’s third leader henceforth.
+“All of you, listen to me. Nobody is ever to listen to him again unless you want to be killed by him.
+“Did you all hear me?”
+The dozens of pirates nearby watched as Hutu curled up and screamed on the ground. After which, they glanced at the furious Ingelund and finally replied loudly, “Yes. We heard it!”
+Ingelund took a deep breath, grabbed Hutu up and said, “If you weren’t the only sniper in our Bloodfish pirates and because your loyalty to me, I would really have fucking killed you already. Do remember to stay with me from now on.”
+"Yes!"
+Hutu knew how fearsome Ingelund’s strength was, as well as his ruthlessness. Though he was somewhat resentful inside, he was still respectful toward the man.
+As Ingelund dropped Hutu, he then spoke in a heavy tone, “Call all of our brothers back to the castle and pack up everything. Collect all the weapons in the castle. We can’t stay here any longer or else we’ll be killed by the enemies.”
+“S-second Chief, do you mean… we’re running away?” An ordinary pirate leader asked aloud.
+Ingelund said in a heavy tone, “Though speaking about ‘running away’ is rather humiliating to us, that’s the truth. The enemies are way too powerful. I had once served in the United States’ Marines Corps and fought numerous top fighters from various countries in the world, so I know very well the strength of our enemies. Small in numbers, they are only a dozen people. Yet, be it their individual capabilities or teamwork, they are of the best and the most formidable bunch I’ve ever seen in my life. We’ll die here if we don’t run. And they will continue to sneak-raid and kill us. Now tell me, do you… want to die here?”
+“NO. I DON’T WANT TO DIE HERE!”
+All the remaining pirates shouted loudly.
+“Then run from this place since you don’t wanna die! We’re pirates. Encountering a powerful bunch, we immediately run; meeting weak prey, we squeeze them out of all they have! So get your asses ready to leave this island!!!”
+“YES!”
 
 
-Tang Xiu quietly went back to South Gate Town and didn’t disturb anyone. As he went to his room, he immediately took his mobile and dialed Miao Wentang’s number.
-“You haven’t slept, Brother Tang?”
-Miao Wentang’s cheerful laughter came out of the phone.
-“Not yet. I need to talk to you about something.” Tang Xiu said.
-“What’s up? Tell me!” Miao Wentang replied.
-“Are you short on money right now? And do you want to get your hands on some?” Tang Xiu asked.
-“I do. Never been like this before. But anyway, what kind of good business are you offering me?” Miao Wentang replied with a light laugh.
-Tang Xiu said, “I’m preparing to pull out the roots of my personal enemy. I have contacted some people and am now preparing to act in the next few days. Do you have any interest in joining?”
-“Which family?” Miao Wentang asked.
-“The Zhangs, Star City.” Tang Xiu said.
-Miao Wentang was silent for a moment before he slowly spoke, “Never heard of this family. It should be a big, respected family in the country. But regardless of any family, since Brother Tang has openly spoken about it, naturally, I’ll join the fray. By the way, do you want me to call Brother Shao also?”
-“I’ll call him myself. If you want to join, then come to Star City tomorrow, we’ll meet in the Long’s Dining Hall.” Tang Xiu said.
-"Alright!"
-After Tang Xiu hung up, he dialed Shao Mingzhen’s number, and just like Miao Wentang, he also agreed to join.
-“Now, the Ouyang Family!”
-Tang Xiu paused. He was somewhat hesitating. His plan to remove the Zhang Family was definitely a big move. Even though he had invited four forces consisting of the Long Family, Chen Zhizhong, Miao Wentang and Shao Mingzhen to join this endeavor, but the Zhang Family was a local tyrant in Star City and had deep roots here, so they might still be able to counterattack before dying. He could tell that their resistance before death would be very powerful. He was hesitating whether to pull the Ouyang Family in this, as he would then owe them a favor.
-Owing money was still okay, but owing a favor of gratitude was very difficult to repay. As reluctant as he always was to have it, Tang Xiu didn’t want to owe any gratitude from others.
-Finally, he decided to talk with Ouyang Lulu first in order to sound out this problem.
-Tang Xiu looked through the window, watching the white Land Rover in the parking lot. Then, he turned around to leave his room. As he arrived at the guest room where Ouyang Lulu was staying, he knocked the door.
-"Click..."
-The door was opened from the inside as Ouyang Lulu, in her sexy pajamas, stood at the door with sleepy-watery eyes. She muttered out of discontent and said, “What do you want from me in the middle of the night? This young lady came to your home and is only spending the night here temporarily, I won’t give up my chastity for you!”
-Tang Xiu passed by her toward the sofa. As he sat down, he said, “I need to talk to you about something important. Wash your face first to sober up!"
+Dozens of pirates returned to the castle and began packing up all the weapons and ammo as well as preparing enough food for the trip. Desperate criminals they might be, but dying was never something they wanted. They were pirates. They committed the most heinous crimes and were wanted by the Interpol. Yet, looting and plundering were what they felt to be in line with their work style.
+If someone could live, who the hell would want to die? For dying meant that there would be nothing left for them.
+A burly man came to Ingelund and croaked, “Second Chief, what should we do with all the captives? Kill them?”
+Knitting his brows, Ingelund asked in a deep voice, “How many of them are left?”
+“Except for the seven you just killed, there are still 126 left. Our brothers have them locked up. We can kill them all at once as long as you issue the order,” said the burly man.
+“How much food is left in the castle exactly?” asked Ingelund once again.
+“It should be enough for two months’ provisions for our brothers,” said the burly man.
+A brilliant spark glinted in Ingelund’s eyes as he said in a deep voice, “Take ten people and keep the rest here. And do remember to take all the food in the castle. Humph… those people said that this place is theirs. I wanna fucking see how they deal with the rest of the captives.”
+“Huh?” the burly man was puzzled. “Second Chief, why are we leaving them here? Almost all the remaining captives are women, even our brothers have yet to farm dozens of them! Leaving them to the enemies is way too cheap, no?”
+“You know nothing, idiot,” Ingelund smiled grimly. “We’re taking all the food and leaving the captives here, but they too have to eat. If those people don’t care about the life and death of these captives, they will not give their food to these women and thus will starve them to death. But if they do give some of their provisions to these women, humph… would their provisions be able to support that?”
+“You mean…” the burly was astonished, “You want to drag down the enemies with the women?”
+“Exactly!” said Ingelund proudly.
+The burly man hesitated for a moment and then said, “Then why don’t we leave all the women behind instead of taking only ten of them?”
+Ingelund slapped the burly man’s head and cursed angrily, “Are you a fucking idiot? Nobody can say if we can escape safely! For now, we can only expect that they won’t ignore the captives. If they do, we can use those ten as hostages to get away scot-free!”
+“I see!” the burly man scratched his head as his rough face grinned hideously.
+The Bloodfish pirates moved very fast, which was something they rarely did. Within a short half an hour, all the weapons and foodstuffs in the castle had been packed up. Each and every one of them now carried a large bag as they quietly left the castle from the back under the protection of 20-30 armed pirates.
+As for the civilian they held captive, all of them were locked up in the hall, as even all the windows were tightly nailed with planks.
 
-Ouyang Lulu rolled her eyes at him as she went to the bathroom to wash her face. She came back more spirited afterward, even though there was still a trace of dissatisfaction on her face. She then snorted and said, “What is this serious business that you can’t even wait until tomorrow? Don’t you see what time it is now?”
-Tang Xiu replied with a straightforward manner, “The deal is big, are you interested?”
-Ouyang Lulu confused, "What big deal?"
-“To tell you the truth, it’s not a serious business, but you can be sure that it will bring you money. Some people from a certain family in Star City have crossed my line and I’m preparing to remove them. This family is very rich and powerful. I’ve already contacted some people and will act in the next few days. Even though your Ouyang Family isn’t based in Star City, you have deep capital. So, if you want the share of this endeavor, I can let you join on this.”
-Ouyang Lulu asked curiously, "Which family?"
-Tang Xiu lightly said, “It’s the Zhangs.”
-“Zhengyu told me that his family has some friction with this Zhang Family. The people you’ve contacted should also include the Long family, shouldn’t it?” Ouyang Lulu said.
-Tang Xiu replied with a nod, “Yes. If the Zhang Family is to be completely destroyed, the Long Family will have the biggest benefits. This is a heaven-sent opportunity. If Long Hanwen and Chen Zhizhong are not stupid, I’m sure they will join.”
-Ouyang Lulu pondered for a moment. As she sat at the opposite side from Tang Xiu, she asked, “Can you tell me as how the Zhangs have offended you?”
-“I once gave a lesson to the Zhang’s arrogant princess, Zhang Deqin. I also taught their young master twice before. And yesterday, when I brought Yinyin outside to buy some books in the bookstore, I was being spied on by three assassins. Even though I’ve killed those three assassins, but I also have spent quite a lot of money to find out that Zhang Deqin is behind this. You tell me. She wants me die. Should I not kill them also?” Tang Xiu said with a tranquil expression.
-Ouyang Lulu was surprised, “You’re the one who killed those three people at the front entrance of South Gate Town today? Those three were actually assassins? Ah right, I heard that there were firearms found at the scene, so it turns out that those people are the evil kind. But this is kinda a big issue, so I have to discuss this with my family.”
-“If your family join in, then we’ll meet tomorrow night at the Long’s Dining Hall with the others.” Tang Xiu said.
-“You haven’t told me who are the others who’ll join aside from the Long Family.” Ouyang Lulu said.
-“It the Longs, Chen Zhizhong and my other two friends. They have their own forces, but I don’t know about their strength in detail.” Answered Tang Xiu.
-“You didn’t invite Chu Yi and Bai Tao?” Ouyang Lulu asked with surprise.
-“No, their family in Beijing perhaps have their own hostile adversaries, so I don’t want them to participate in this.” Tang Xiu said.
-Since Ouyang Lulu herself was the eldest daughter of an affluent family, she was also well aware about this problem as she nodded and said, “I know. The Chu and Bai Families are very close, but they too have some respected families that pose a threat to them. If their actions catch the attention of their enemies, perhaps they will also face some big troubles.”
-At Jianning District, Star City.
-Inside a three-storied building, Zhang Deqin was sitting on the soft sofa with a cup of red wine in her hand. However, there remained more than a half of it. Her expression was unsightly as anxiousness and worry could be seen on her face. In front of her, Zhang Yongjin was walking back and forth restlessly whilst glancing from time to time at Zhang Deqin’s mobile.
-They were waiting for news about the removal of their enemy.
-However, even after late in the night, there was not even the slightest bit of news.
-“Can you just calm down? If you can’t stomach it, just go sleep! I’ll handle everything myself!” Zhang Deqin snapped with an irritated expression.
-Zhang Yongjin stopped, then sat opposite her. He took a cigarette, lit it and puffed a few mouthfuls as he spoke, “Big Sis, could it be something happened? It’s already the middle of the night, but how come there’s not even a bit of news at all? These assassins you’ve hired, aren’t they very good?”
-“You ask me, but who should I ask?” Zhang Deqin replied angrily.
-“The murders in front of the entrance of South Gate Town, could it be related with that surnamed Tang? I heard that three people died there, maybe there’s someone named Tang, his friends or relatives?” Zhang Yongjin hesitated as he said.
-Zhang Deqin herself had heard the news, but she was unsure as who the victims were. She had spent 20 million to hire assassins from the Philippines. The other party only told her that they would do the job but didn’t say as to how many they would send.
-What made her restless was not Tang Xiu getting killed. She was worried that the middleman would sell her if the assassins were killed. If Tang Xiu didn’t die and he figured out that she was the one who hired them, her fate would definitely be very miserable.
-"Ring… ring… ring…”
-Her mobile sounded, shocking the siblings.
-Zhang Deqin quickly grabbed it and immediately pressed the answer button upon seeing the caller ID. She then asked with a sinking tone, “Have you clearly investigated the three people who were killed in front of South Gate Town’s entrance?”
-“Their identities are unidentified. But they are not from our country.”
-A low and deep voice came out of the phone.
-The phone was hung up!
-The phone was dropped from Zhang Deqin’s hand, but it was as though she didn’t realize it. If these three killed people were not domestic, then they should be the assassins she had hired.
-But they… wouldn’t sell her out, would they?”
-No! They shouldn’t be!
-The one she contacted were not them, but a middleman. As long as the middleman didn’t sell her out, she would be absolutely safe.
-She quickly picked the mobile back and dialed the middleman’s number. However, she was at a complete loss and restless as the other party unexpectedly shut his phone down.
-What was happening exactly?
-Zhang Deqin looked at Zhang Yongjn’s eyes with a restless expression. A few minutes later, she suddenly stood and quickly spoke to him, “Leave Star City tonight. Do remember that, even if something huge happens here, you mustn’t come back to Star City for a short while. You must go to…. Northern Jiangsu. I have a friend there, she’ll take care of you for a while.”
-“Big Sis, what’s happened exactly? We’re the one who hired the assassins, but why do I feel that we’re the ones being targeted?”
-“I have a bad premonition that this will create a big trouble. Look, don’t think and don’t ask. Leave Star City tonight and go to my friend’s in Northern Jiangsu. Pack up your things and prepare, NOW!” Zhang Deqin replied with a bitter expression.
-“But Sis, how about you?” Zhang Yongjin hurriedly asked.
-“I can’t go anywhere. Firstly, we aren’t sure whether Tang Xiu has figured out that we’re the masterminds. Secondly, our family has our own shelter here, so I’ll be alright. Also, I will try to appear amidst the public in the next few days with more bodyguards around me. Thirdly, even if Tang Xiu knows that I’m the one who hired those assassins, he won’t be so brazen and reckless as to act against me, for he’s also well aware that our Zhang Family will absolutely retaliate without mercy.”
-“No, Sis! I don’t wanna go. If Tang Xiu can’t do nothing to you, then he also won’t dare strike me! Going or staying, we must stay together!” Zhang Yongjin replied.
-Zhang Deqin felt warm inside, but she still shouted angrily, “Cut the crap. I said you must go tonight. I’ll tell Dad and Mom about this.”
-“NO! I don’t need you to tell me what to do. And don’t threaten me! I’m a man. I must stay here!” Zhang Yongjin talked back angrily.
-“You want me to tie you up and send you there, or do you want go there obediently yourself? Choose!” Zhang Deqin replied with a sneer.
+Halfway up the hillside behind the castle, Wang Ming and his comrade were hiding amid the thick patches of grass with mini binoculars in their hands, watching all the movements in the castle’s surroundings.
+“Someone’s coming!” Wang Ming suddenly whispered.
+The other man observed for several seconds and then whispered back, “It’s the pirates in the castle. They are seemingly about to flee.”
+Wang Ming nodded, took out a satellite phone and dialed a number.
+“Wolf Head, the pirates are about to flee. They’re carrying a large number of arms and foodstuff and are also holding ten civilians. They are heading up toward the back hill.”
+“Copy that! Be careful and take cover!”
+Wolf Head’s voice came from the satellite phone.
+In another direction.
+Taking back the satellite phone, Wolf Head looked at Tang Xiu and said, “Boss, those pirates are about to run away and heading toward Wang Ming’s position. They should be taking down the trails there. And I suspect that their ships are also hidden there.”
+“Let’s catch up and find the right time to strike and kill them. Tell the rest to prioritize their safety first,” said Tang Xiu with a sneer.
+"Roger that!"
+Wolf Head immediately used the satellite phone and typed a message to the group.
+Ten minutes later, Tang Xiu led Wolf Head and the others to Wang Ming’s location. Watching the leaving pirates on the curving hill road below through mini binoculars, Tang Xiu coldly smiled and said in a deep voice, “Awen, Awu. How many people can you kill without injuring the civilians if you were to ambush them?”
+“At least ten,” said Mo Awen after pondering for a moment.
+“Then go! Also, throw them into confusion and make some trouble for them to slow down their escape.” Tang Xiu approved with a nod.
+“Roger that!”
+Mo Awen and Mo Awu replied and soon disappeared into the nearby woods.
+Turning to look at Wolf Head, Tang Xiu then said, “Take your men and cross to the side. Try to set some traps in front of them within 20 minutes, and then kill as many pirates as you can.”
+“Copy that!”
+Licking his lips, Wolf Head replied and immediately left with the other eleven men.
+Tang Xiu stepped on the boulder and quickly chased downwards. He moved fast and as smooth as usual. Within just two minutes, he had caught up hundreds of meters behind the fleeing opposite party. Without being discovered by them, he then went into hiding.
+“Bang, bang, bang…”
+A series of gunshots were heard as several pirates in the forefront fell to the ground one after another. Two submachine guns’ licking flames were as though harvesters that claimed the lives of the pirates in the forefront as though they were wheat. As for Ingelund who was in the forefront, were it not because of his fast reaction to instantly grab a pirate near him to block the line of bullets, he would have also been shot dead.
+“SCATTER AND STRIKE BACK!”
+Ingelund pushed the pirate’s sieved dead body and retreated into the bushes nearby like a cheetah. After rolling for several times and positioning himself there, he aimed the muzzle of his submachine gun at the direction of the shots.
+“Bang, bang…”
+As the dark muzzled aimed to the front and the trigger was pulled, bullets sprayed as though a torrential downpouring. Branches were sent flying and rocks were scattered around. Yet, the sound of gunshots had stopped and the two enemy men had already left that position.
+Right at this moment, the other pirates who were carrying guns also began to counterattack toward the direction where the gunshots started. After half a minute of shooting, some people even had changed to their second magazine.
+“STOP FIRING AND SAVE YOUR AMMO!” Ingelund growled.
+Immediately, the pirates no longer fired, but they still hid in the surrounding thicket, looking for the enemies through the slit of branches and leaves. Unfortunately, no matter how they looked for them, they couldn’t any of their traces.
+This waiting game was exceptionally terrible!
+Intense fear engulfed the heart of every pirate, for they couldn’t even see a shadow of the enemies who had ruthlessly shot dozens of their brothers. Looking through the branches and leaves at those who had fallen in a pool of blood, their hearts fell into the abyss.
+“S-second Chief, what should we do?”
+Armed with a sniper rifle, Hutu had been observing for quite a long time through his sniper scope, yet he couldn’t find even a trace of the enemies. He carefully turned back and asked Ingelund who was a few meters away from him.
+With coldness suffused in his eyes, Ingelund shook his head and looked at the back. He then spoke in a heavy voice, “Tell someone to use those civilians to block the guns, making them our human shields. If those bastards hiding in the dark were to open fire, let them kill those civilians first!”
+Quickly, seven or eight pirates crawled up from the thicket and quickly came in front of the ten civilians who were lying on the ground. After beating them for a while, they picked them up from the ground and pushed their backs.
+“Take the lead!”
+The ten civilians, six of whom were men and four were rather pretty women were forced to help the pirates to carry the food and medicines.
+At this moment, they looked deathly pale with frightened expressions. Two quite timid women even had their legs trembling.
+“P-please, I beg you. Don’t kill us.”
+A tall and big man suddenly wept like a little girl out of fright. His legs were trembling, lips shivering, and there even was a watermark in his crotch.
+“You fucking asshole. You got scared and peed yourself?”
+The pirate behind him who just smelt his pee smashed the tall man’s head fiercely, causing the badly beaten man to straightly fall to the ground.
+After that, he then grabbed the man again, pushing his gun against him to make the man lead the way in front.
+“Tak…”
+A stone suddenly came shooting from the distant thicket and accurately hit that pirate’s temple. A bloody was hole created, directly killing him.
+Quickly, the leaves and branches of that thicket swayed as a man’s silhouette flashed.
+Down the middle of the pirates, Ingelund, who found that another man was killed, wasn’t startled as he shouted loudly, “All you lot be alerted! Be careful not to be caught in a sneak attack by the enemy again. If those bastards dare to attack again and kill one of our brothers, just kill one civilian.”
+“Bang…”
+A gunshot sounded as the badly beaten man’s head was shot in the head by Ingelund and died on the spot.
+Hopelessness and despair filled the hearts of the other nine civilians upon hearing Ingelund’s words. They knew they were as good as dead. This place was a battlefield and not under the rule and law of the society. In this hellish place, a human could die at anytime.
+Hiding amid the thicket, Tang Xiu’s eyelids slanted after hearing it, the murderous intent inside him getting thicker. He just identified Ingelund. It was the man who shot and killed the Bloodfish Pirates’ leader—Duffsky, the second leader of the Bloodfish Pirates… Ingelund.
+_‘This bastard is ruthless and merciless; he must be the first one to be killed. The other pirate members will collapse at once without their leaders. However, the problem is the remaining nine civilians over there.’_
+Tang Xiu thought for a moment and faintly felt that the situation was somewhat tricky.
 
 
-Star City, Police Department, Criminal Division.
-The entire building of the Criminal Division’s offices was still brightly lit even though morning had already come. A lot of police officers were passing in and out of the building, while police cars also came and left with their flashing lights on.
-On the second floor of the building.
-The office was filled with curling smoke, the pungent smell irritating people’s noses. Deng Jianmin—the director of the City Public Security Bureau, clamped his cigarettes and deeply frowned as he looked at more than 20 police officers of the Criminal Division.
-“Our superiors have decreed that we must solve this case within three days. I don’t care what methods, get me the murderer as soon as possible!” Deng Jianmin spoke with an unsightly expression.
-Cheng Xuemei forced out a smile and said, “Director, we too want to solve this case ASAP. But this case is way too special, while we don’t have the files of these people in our archives. If we really can determine that they are foreigners, then we can contact the Interpol. Only then can we get more clues.”
-“I’ve reported this situation, and I believe we can get in touch with the Interpol soon. As long as we can be sure that they’re foreigners, it means that these people are international assassins as suspected. I think their target is living in South Gate Town since they died nearby its front entrance. Have you copied the CCTV footage for the residents who have gone out of the complex?” Deng Jianmin said.
-“We already did that, Sir!” Cheng Xuemei replied.
-“Then play and put it on the screen for the suspicious target.” Deng Jianmin said.
-“Understood!” Cheng Xuemei complied.
-The monitor screen played the footage. Since the video was set to fast play, ten minutes later, the image of Tang Xiu and Gu Yin leaving the complex was played on the screen.
-"Wait!"
-Cheng Xuemei’s face slightly changed and immediately shouted with a deep tone.
-“Captain Cheng, did you find anything?” Deng Jianmin asked with a confused expression.
-Cheng Xuemei spoke to the person who played the footage, “Rewind the video, and focus on the two who just came out before.”
-Deng Jianmin watched the screen as his brows knitted a few seconds after and said, “That young man is kinda family, where have I seen him before?”
-“Chief, he’s Tang Xiu.” Cheng Xuemei spoke with a deep tone.
-Deng Jianmin’s pupils shrunk as he suddenly stood and spoke with a deepened tone, “That major case before, the killing of those A-level wanted criminals, he was suspected to be involved. In the kidnapping case at school, he was the one who acted and killed the criminal. But how can he also appear in this South Gate Town case?”
-Cheng Xuemei shook her head and replied, “He lives there. And it looks like the little girl he was holding should also live together with him. The time on the footage is only half an hour from when the three assassins were killed.”
-“Continue playing the surveillance footage.” Deng Jianmin said with a deep tone.
+Under the dark night’s obscure moonlight, Tang Xiu quietly left as though a ghost and soon appeared at a dark secluded thicket. He took out a satellite phone and then called Wolf Head.
+“The pirates are using hostages to threaten us. How can we get rid of all the pirates while ensuring the safety of the hostages?” Tang Xiu whispered.
+“It’s very difficult to achieve, unless we wait and retreat.”
+“Wait and retreat?” Tang Xiu was somewhat puzzled.
+“As long as they are on the island and holding the captives, we can achieve nothing if we want to kill them as well as ensure the safety of the hostages. Unless they board the ship and set sail, only then can we sneak into their ship and assassinate them,” said Wolf Head.
+“What you proposed is also a solution. But if they board the ship, it will be very hard for us to slip into the ship to assassinate them without us being spotted. Also, we gotta decimate the second leader of this Bloodfish Pirates as soon as possible. Otherwise, they will still have a backbone, greatly increasing the difficulty for us to assassinate them,” said Tang Xiu.
+Wolf Head was silent for several seconds before he then slowly said, “Then, I’ll assassinate this Ingelund.”
+“No. It’s very easy for me to kill him, but I fear those hostages will be killed if I rashly kill him,” said Tang Xiu.
+“I have observed the remaining pirates. They have a total 61 people left now. If all of us were to coordinate and ambush them in a strategic terrain, shooting at them in a close distance, we should be able to kill more than half of their numbers. Also, we need to assign four of our people to stay on guard to especially observe those pirates. whoever amongst them shoots the hostages in the forefront, they must kill them in advance. However, I can’t guarantee that all the hostages will survive, though,” said Wolf Head.
+Tang Xiu silently analyzed Wolf Head’s proposal in his mind. If he let those pirates leave, the remaining nine hostages would highly likely be killed. But if he carried on the killing and rescue on Nine Dragon Island, some of the hostages would probably die.
+After measuring and weighing the whole situation, Tang Xiu made up his mind and said in a heavy voice, “We’ll do it according to your suggestion. Killing these pirates is a risky and dangerous act in itself and dying is but also a possibility. We’ll do our best even if those hostages are in a dangerous situations.”
+After hanging up the phone, Tang Xiu watched the pirates’ advancing direction. He circled from the flank as though a fast wind or a electrical spark. After four to five minutes, he approached Wolf Head and the others’ hiding place.
+"Have you informed Awen and Awu?” Tang Xiu took the binoculars handed by his man and whispered.
+“They have been informed and should be here soon,” said Wolf Head.
+Nodding in reply, Tang Xiu then used the binoculars to observe, finding that the pirates were holding the remaining nine hostages and walking toward this direction. At this time, they looked frightened and constantly moved their guns’ muzzles around.
 
-Along with the playing back of the video on the screen, everyone present frowned. Not long after, Tang Xiu walked with the little girl back to the villa complex, as they then watched the footage until the three assassins were killed, but Tang Xiu himself didn’t come out again.
-“It’s not him?” One of the Criminal Police officers shook his head.
-“As far I know, Tang Xiu is an expert martial artist. He can climb up the wall to leave the villa complex. Who can be sure that he’s not the one who killed those three assassins?” Cheng Xuemei replied with a sneer.
-The other member of Criminal Police said, “Chief, we’ve gotten all CCTV videos for the entire area of South Gate Town. And according to the people in charge from the Property Management Office, there is nearly no black spots in the monitoring scope. And Tang Xiu wasn’t seen in the video leaving the villa complex in all of the footages, so we can exclude him from the suspect list.”
-“Just keep watching.” Deng Jianmin said deeply.
-3:30 AM
-All of the monitoring video footages in South Gate Town had been played. In the end, Tang Xiu indeed didn’t leave South Gate Town.
-“If Tang Xiu isn’t involved in this case, then who is it? We’ve screened all the residents that came out of the complex and excluded nearly everyone.” Cheng Xuemei said with a puzzled expression.
-Deng Jianmin tapped the table with his fingers for a long while as he then slowly spoke, “Captain Cheng, go to South Gate Town tomorrow, ask Tang Xiu to work with us and gather information from him.”
-Cheng Xuemei forced out a smile and said, “Director Deng, Tang Xiu’s disposition is… Well, he’s quite hard to get along with. Also, we have no evidence that he’s the one who did it. So I think that it’s quite improper if we rashly ask him to coordinate with us. The most important thing for us now is to gather some clues. Once we’ve determined the target, we can continue the investigation further.”
-She hadn’t forgotten the previous case where she asked Tang Xiu to cooperate with her investigation, only to find nothing. And this time, she also had the same hunch, that even if she was to find Tang Xiu, she still wouldn’t get any useful information from him.
-“No matter what, you’ll go there; regardless of he’s the murderer or not! More or less, he’ll still be intimidated. There have been too many major cases in Star City recently. If this keeps going like this, not only will I not last any long in my Bureau Director position, even all of you will also be punished severely!” Deng Jianmin said.
-Cheng Xuemei couldn’t help but rub her forehead out of a headache. But she could only nod under Deng Jianmin’s order.
+“Boss, considering their speed, it should take about four minutes for them to arrive at our position. Are you thinking to make this spot as an ambush point?” asked Wolf Head in a whisper.
+Looking at the surrounding, Tang Xiu assented with a nod, “Yes. Though we are in a disadvantageous position because of the inclination, our tracks are completely concealed. Unless they climb the boulders on both sides, they won’t be able find us. Also, we mustn’t open fire before they’ve arrived and we can’t accidentally hurt the hostages in the forefront. Hence, we must wait until they passed, shooting them in the back.”
+“Boss, I think it’s not quite right. We should put a few people here while the rest circle to the back. But the four men staying here, their main purpose is to monitor those pirates who are very close to the hostages and can freely kill them. If they find that their muzzles are aimed at the hostages, they will shoot them immediately,” said Wolf Head.
+“OK!” After thinking, Tang Xiu directly approved it.
+He didn’t have knowledge about military tactics and devising battle plans. But Wolf Head was once the top ace of the country’s special forces and had undertaken numerous missions and devised numerous battle plans by himself. Thus, his opinion was worth employing.
+Shortly after, the Mo brothers also quickly arrived and approved with a nod upon hearing Wolf Head’s idea.
+“Awen, Awu; both of you, along with Wolf Head and Wang Ming, will team up. Your main purpose is to kill those pirates who are close to the hostages. I will kill Ingelund first while the rest will slay the other pirates as fast as you can. We must be fast, ruthless and accurate. If any pirates escape, you don’t need to chase them down, kill most of the pirates first instead,” said Tang Xiu.
+"No problem!" Everyone nodded.
+Time flew by.
+Quickly, those pirates holding the hostages were about a hundred meters away from Awen, Awu, and the others’ ambush point. Behind them were Tang Xiu with five of his men, following along quietly. The distance was only 40-50 meters away from the pirates in the forefront.
+“Keep yourselves concealed and approach them as close as you can,” Tang Xiu ordered in a whisper.
+A minute after, Tang Xiu climbed up a big tree and looked through the branches and leaves. The pirates were about 20-30 meters away as his vision swept at them and then finally locked on Ingelund, aiming his muzzle at him.
+“Bang…”
+A gunshot was sound as a bloody hole was created on the back of Ingelund’s head. His eyes stared wide as he turned his head with difficulty to look at Tang Xiu’s direction. His vision turned blurred as he lost his consciousness and died on the spot.
+"Bang, bang, bang..."
+“Rat-tat-tat…”
+Intense gunfire broke out as tongues of flames burst in and out.
+Bullets poured out as though raindrops, aiming toward the pirates, while submachine guns’ shots also barked from both sides of the pirates.
+“RUUUN! AAAAH!”
+A pirate who was scared to death screamed sharply as he snowballed himself to avoid the bullets fired into the nearby thicket. Unfortunately, bad luck befell unto him as a bullet made a hole on his head and he finally dropped down on the thick patches of grass, motionless.
+Of the more than 60 pirates, except for those who were shot dead, all fled to every direction. They didn’t have the capacity and reaction a regular army possessed, neither they possessed the loftiness to be valiant and fearless. They were pirates, hoodlums, and thugs who would even betray their souls for money and benefits. When they were powerful, they would ruthlessly bully and massacre others, but in the face of more powerful and vicious enemies, they would fall into fear and run away.
+After half a minute, except for dead bodies everywhere, only seven or eight pirates who were lucky enough to quickly flee into the bushes by the side of the road were left. The rest all died a horrible death. But four among the nine hostages were shot and killed during the counterattack of the pirates, along with two injured.
+Tang Xiu strode into the middle of the dead bodies and released his spiritual sense to cover the area.
+“Bang, bang…”
+As his fingers pulled the trigger, he directly shot and killed four or five severely wounded pirates who were not directly killed and pretending to be dead.
+Retracting his spiritual sense, Tang Xiu looked at the frightened hostages on the ground and asked in a deep voice, “Tell me who you are!”
+A white-haired Caucasian man with an injured leg who sat slumped on the ground answered, “We are the residents of the Southern Bird Island who got caught and held captives by them! Who are you guys?”
+“I’m the owner of this island,” said Tang Xiu.
+“You lie. The owner of this island is James—James Bond. I once helped him construct the buildings here. He’s a good rich man,” said the Caucasian man whilst shaking his head.
+“Don’t tell me you don’t know that he’s sold this island? I’m the one who bought this island! Do remember later, my Chinese name is Tang Xiu and I’m the owner of this place,” said Tang Xiu lightly.
+The man gulped down his saliva and said in a bit of awe, “I’ll remember your name.”
+Tang Xiu nodded and then said to Wolf Head and his men around, “Two of you stay here and dress up their wounds. The rest will chase down and kill the rest of the pirates. Do remember to kill them completely or as many as possible. If they run too fast and you can’t find them, then let them be. In short, I don’t want any pirates on Nine Dragon Island before dawn.”
+“Roger that, Boss!”
+Wolf Head motioned two men as the rest then ran toward the forested hills around. But Mo Awen and Mo Awu entered the woods to chase down the pirates.
+Then, Tang Xiu looked at the Southern Bird Island’s residents and calmly said, “You don’t have to be afraid. I’m the owner of this place and not one of these vicious pirates. Not only will I guarantee your safety, I’ll also ensure your safe departure of this island. For now, I’ll have to trouble you to return to the castle with us. Then I’ll send some people to escort you back to Southern Bird Island after you have a good rest tomorrow.”
+“Thank you. Thank you very much!”
+Upon hearing it, the five people immediately looked ecstatic.
 ****
-Life oftentimes feels bleak and uneventful by many. But for some others, they find that life was exciting and colorful in particular fashions. They could be successful, experience failures, fortunes and misfortunes, as everything was to fulfil and enriched life as it could be.
-It’s already been two months after Tang Xiu returned from the Immortal World. But too many things had happened that he had to pass through. Sometimes, he also wanted to stop and take a break, but the turning wheel of fate was beyond what he could control. It pushed him forward, dragging him to advance without him being able to resist. However, as brave as he always was, the 10,000 years of life he had lived through in the Immortal World had tempered his heart as though it was a stone.
-Inside the villa’s storehouse…
-Tang Xiu was refining one medicinal drug, Corpse Dissolver.
-In the Immortal World, this type of drug was used to completely destroy corpses and left no trace. A drop of it could destroy the corpse into a puddle of foul water, even the clothes wouldn’t remain.
-Only after early morning did Tang Xiu come back to his room and slept until noon. After he woke up and took a bath, he went to the living room in the first floor and found Long Hanwen sitting there whilst drinking tea. Quietly sitting at his opposite side was Long Zhengyu, who was reading documents.
-“Ah, when have you arrived, Uncle Long?” Tang Xiu approached and greeted them.
-Long Hanwen narrowed his eyes as he looked at Tang Xiu, saying, “I just got here, since I had to collect some information first. Anyway, this house is very good. Got yourself comfy here?”
-“It’s good!” Tang Xiu said.
-Long Zhengyu kept the documents in his hands. He handed it over to Tang Xiu and said, “Never thought that my father would send people to gather the things you asked. It’s very thorough, so it can add to the information I’ve gotten this morning. Anyways, my father also wants you to see the contract we agreed to last night.”
-Tang Xiu took the documents about the Zhang Family and read them carefully. He had no choice but admit that he was very insignificant compared to the Zhang Family. The assets calculation alone, the Zhangs had more than 20 billion and also had some trump cards within their arsenal. But even with the information provided by Long Hanwen, there was nothing about their home or their hidden trump card.
-Shortly after, from Long Hanwen, Tang Xiu also read the contract that was made last night. His expression turned particularly strange after reading it as he chuckled, “Ah, opportunities truly can only be grasped by people who already prepared themselves. It seems that Uncle Long has prepared it quite well! I don’t know much about this contract, but I can see the problem within it. If the Zhang Family were to sign this contract and are short of liquid funds, I think they will run into a big trouble.”
-“You can figure it out?” Long Hanwen’s brows slanted as he asked.
-“Yea, I’m talking about this contract. I have nothing to say about the other clauses though. But there’s something bothering me. Your Long Family and the Zhangs are rivals; there are even some friction between your younger generation. Do you have any assurance that the Zhangs will sign this contract?” Tang Xiu asked.
-Long Hanwen said with a light laugh, “Hahaha. Regardless of the world being at peace or chaotic, people will always chase profits and benefits. And what’s a businessman to begin with? They are nothing but people who’ll pursue profits. Zhang Fengxian, the head of the Zhang Family, is a fickle man. He has no friends. He can even sell his family members if it can give him some interests and profits. And from this contract, presuming that it can be completed, this would net a profit of at least one billion yuan for the Zhangs. Do you think Zhang Fengxian won’t be tempted by this? Also, this contract only includes the first phase of the joint cooperation, while there will also be subsequent projects following this. With such a huge prospect of profits, Zhang Fengxian would be a fool if he doesn’t sign this.”
-“That makes sense. But there’s one more critical problem as of now. It’s about the Hu and Xue Families. I heard some news that the Hu and Xue Families’ strength are not as strong as the Zhangs’. But if the two were to join forces with them, I’m afraid that it will become quite troublesome.” Tang Xiu said.
-“This problem is also a concern that I’m worried about. So, the reason as to why I wanted to see you this time is that I wanted to hear your opinion on this. Since you want to set a trap, you might have a plan ready.” Long Hanwen said with an unflinching expression.
-Tang Xiu shook his head and said, “I know nothing about business wars. But I do have a short term plan to smear the Zhangs’ reputation. Anyways, the Zhang Group have been listed in the stock market, haven't they? If their corporation’s reputation is damaged, I think their stock price will depreciate big time. Also, I can guarantee that at the beginning of the execution of the plan, the head of the Zhang Family, Zhang Fengxian, as well as some other important figures of the group will be missing. In this situation, where corporation big shots are missing, I believe that our plan will run smoothly.”
-“Are you sure?” Long Hanwen asked with a deep tone.
-“I don’t have a 100% assurance, but 99% is a sure shot.” Tang Xiu said without hesitation.
-With a sinking tone, Long Hanwen replied, “That being the case, we’ll agree to the deal. Now tell me, are there any forces joining us in this aside from our Long Family and Chen Zhizhong?”
-“I’m not sure whether the Ouyang Family will join or not, but for now, we have four forces in this. Your Long Family, Chen Zhizhong, and my two friends- Miao Wentang and Shao Mingzhen.” Tang Xiu said.
-Long Hanwen was shocked, “You’re friends with Miao Wentang? The Miao Family’s head of Haiqing Province and the Big Boss of Miao Group?”
+Inside the castle, over a hundred residents from Southern Bird Island were tied and locked up in a spacious hall. Each and every one of them had panicked expressions on their faces and were desperately struggling. Of the more than 100 of them, only six were men and the rest were women, mostly pretty young women.
+These women, many of them wore clothes that were unable to cover their figures and apparently had received severe abuse.
+“Mayor Oshima, you gotta find a solution fast. If we can’t escape, we’ll all die here!” With panic filling her eyes, a slightly fat woman quickly spoke with a tone of anxiousness and restlessness.
+In front of her was the mayor of Southern Bird Island, Kawasaki Oshima.
+Southern Bird Island originally had a small area, and the highest point on the ground didn’t even exceed ten meters above the sea level. However, due to the earthquake a few years ago, leading to the increase of the surface level of the Southern Bird Island, the area also increased two or three times. From thereon, many immigrants had set up their home on this island.
+The entire Southern Bird Island only had a small town with a total population of no more than 1,000 people. Because Kawasaki Oshima had a high status there, everyone voted him as the mayor. In actuality, he was a mayor under the jurisdiction of the Japan government. After all, several thousand kilometers around the Southern Bird Island and dozens of islands there were under Japan’s jurisdiction.
+He was already over his 40s and it didn’t betray Kawasaki Oshima’s old state. He desperately struggled in an attempt to break the ropes on his body, but his futile efforts amounted to nothing. Those pirates’ skill in tying up and binding were truly excellent. He worked hard for half an hour, yet there was no sign of it loosening.
 
-“Yes, I know him. We’ve been through thick and thin together and finally become friends. I called him last night and he agreed to participate.” Tang Xiu said with a nod.
-“I have a friend in Haiqing Province also, he’s a great businessman. But he’s not worth mentioning compared to the Miao Group. Although Miao Wentang is very mysterious, but he’s very well-known. He is someone who has a very big influence in Haiqing Province.” Long Hanwen replied with disbelief.
-“Actually, I don’t know if he’s that famous.” Tang Xiu said
-Long Hanwen laughed and said, “Hahaha. Seems like my worry is unfounded. Tang Xiu, originally, I was worried that the people you invited have no weight. If so, my Long Family, added with Chen Zhizhong and Miao Wentang, our three forces alone are able to suppress the Zhang Family and will make them unable to even breathe. As for the other one… umm, Shao Mingzhen, I’ve never heard of him, what kind of business does he do?”
-“He’s from Northern Jiangsu, he runs a venture company. But I don’t know his other identity nor if he has any other companies. But he and Miao Wentang are friends for decades, and I can tell that he’s Miao Wentang’s brother through life and death.”
-“To be able to become Miao Wentang’s brother means that this Shao Mingzhen is also someone who has a great background. Anyways, when will they come here?” Long Hanwen said with a sigh.
-“We agreed to meet tonight in the Long’s Dining Hall. When we’re all together, we’ll work out the plan.” Tang Xiu said.
-Long Hanwen’s brows wrinkled as he pondered for a moment, and then said, “If possible, I think we best not to meet in the Long’s Dining Hall. Don’t forget that the place is the most prestigious restaurant in Star City, there should be a lot of eyes staring at the place. If so many important people gather there, the Zhang Family will certainly hear the news.”
-“Where should we meet then?” Tang Xiu asked
-“To keep everything confidential and in check, we should meet in Lakeview Manor! This place belongs to me and my life and death brother. I also own the shares there. Also, the place only has a few guests usually, while it also has a high security system.” Long Hanwen said.
-“Alright, I’ll inform them about this.” Tang Xiu nodded and said.
-“What about the Ouyang Family? When can they give us their reply?” Long Hanwen asked with a smile.
-Tang Xiu looked toward the kitchen as he got up and went over, asking, “Big Sis Mu, when did Ouyang Lulu leave?”
-“She left very early in the morning, and said she’ll go back to Jingmen Island; she even forgot to bid farewell!” Mu Qingping replied with a smile.
-Tang Xiu nodded. He took his mobile and dialed Ouyang Lulu’s number. Ten seconds later, the call was connected and Ouyang Lulu’s voice came over:
-“Wait two hours for me, my brother and I are coming. Talk again later.”
-"Good!"
-Tang Xiu hang up the phone. He came back to the living room and said, “Ouyang Lulu and her brother will arrive in Star City in two hours.”
 
-The smiling expression on Long Hanwen’s face became a lot thicker as he said, “Ouyang Lei is the successor of the Ouyang Family. He’s also the rising star in the business world since he did quite a few big deals after he took over the Ouyang Family’s businesses. And all the deals he did brought quite a lot of income for the family. Since he’s also coming, it can be assumed that the Ouyang Family is also boarding our ship.”
-Long Zhengyu suddenly interrupted, “With the joint cooperation of these five forces, the Zhangs are sure to die. I don’t think the Zhangs will be able to last even if the Hu and Xue Family come help them.”
-Tang Xiu shook his head and said, “You’re wrong. There’s the sixth force also.”
-“Who is it?” Long Zhengyu was surprised.
-Pointing to himself, Tang Xiu said with a faint smile, “You think that my Magnificent Tang Corporation is a pushover? We might not have much money as of now, but we still have our own force! Besides, I want my people in the key part of the plan.”
-Long Zhengyu laughed involuntarily and then said, “Dang it. My bad, Brother Tang! I, too, heard that you have a group of powerful men- even the security personnel of South Gate Town are not their match.”
-“Long Xueyao told you, did she? That’s right. I do have a group of men, and they will also be the ones taking care of this matter.” Tang Xiu said.
-Long Zhengyu asked, “Anyway, may I know who they are, Brother Tang? How come you’re able to win them over?”
-Tang Xiu smiled. He didn’t answer Long Zhengyu’s question since he didn’t want outsiders to know his secret with the Everlasting Feast Hall. In fact, he could have pulled the Everlasting Feast Hall to deal with this matter, but the Hall was built as a cover for Gu Yan’er, so he didn’t want to create trouble for it.
-Suddenly, Long Hanwen said, "Tang Xiu, have you considered pulling Yuan Zhengxuan over? I heard you also have quite a good relationship with him!”
-Tang Xiu was silent for a moment before he shook his head and said, “ Yuan Zhengxuan and I don’t have much of a relationship, but his son is my best friend! Besides, his business is very special, so I don’t want to pull him over for this matter.”
-Long Hanwen nodded and said, “I know. His business is related to the military, and it’s indeed not suitable for this. However, as long as we give him some hints he will catch the wind, and perhaps he can help deal with some issues also.”
-“With so many people involved in this matter right now, you’re still thinking we won’t able to remove the Zhang Family?” Tang Xiu asked in reply.
-Long Hanwen stared blankly for a moment, then he shook his head and no longer spoke.
-In actuality, he too had long wanted to remove the Zhang Family. As long as the Zhang Family collapsed, he would be able to dominate the real estate business in Star City. He realized that Tang Xiu had seen through him. But even though Tang Xiu was taking the lead for the plan, he would be happy as long as the Zhang Family was ruined.
-However, he was quite shocked inside. He didn’t expect that Tang Xiu, who had just participated in College Entrance Test, could have such powerful personal contacts. From this aspect only, he was inferior. Otherwise, he would have dealt with the Zhang Family by himself.
-Lunch time had come, but Long Hanwen and Long Zhengyu didn’t stay. They hurriedly left to rush to Lakeview Manor to arrange for the secret meeting tonight.
-“Tang Xiu, policemen are visiting outside.”
-Mu Qingping came to Tang Xiu’s bedroom and whispered.
-The police?
-Tang Xiu had long expected the police would come, but he didn’t expect it would be this fast. However, nowadays everything needed definite evidence. Moreover, he also believed he killed those three assassins cleanly. As long as Wolf Head didn’t sell him out, the police wouldn’t be able to find his involvement in the case.
-“Alright, I’ll see them!” Tang Xiu quickly answered.
-At the hall on the first floor.
-Cheng Xuemei and a young police officer of the Criminal Division were sitting in the living room, waiting. The tea had been served, but they didn’t take it.
-“Captain Cheng?”
-Tang Xiu pretended to be surprised upon seeing Cheng Xuemei.
-Cheng Xuemei stood up and looked at Tang Xiu with an indifferent expression as she said, “Mr. Tang, we’re sorry to disturb you. We’re investigating a homicide case that happened in front of South Gate Town’s front entrance. When we saw the CCTV footage, we found that you’re also living here. We want to find out the situation from you, so I hope you can cooperate with us.”
-“Certainly.” Tang Xiu said with a smile.
-“We’ve seen from the footage that you left the villa complex yesterday afternoon and quickly came back. May I ask whether you came out again after that?” Cheng Xuemei asked.
-“No. After going out and coming back yesterday, I read some books and slept. I didn’t go out of the villa even a half step after that.” Tang Xiu shook his head and said.
-“May I ask for what purpose did you go out yesterday?” Chen Xuemei asked.
-“I accompanied my apprentice to buy tutoring and homework books. The stationery shop’s owner nearby the commercial street can prove my testimony.” Tang Xiu said.
-Cheng Xuemei knitted her brows as she asked again, “You haven’t heard that there was a murder in front of the villa complex’s entrance?”
-“I heard it from a friend who came visiting and stayed here yesterday. Three people were killed by gunshots, right? But, I’m really clueless though. You—the police force, should have been a deterrent force, but how come you’re stooping so low now? There have been a lot of murder cases recently in Star City, and this big responsibility is yours to take.”
-Cheng Xuemei was truly helpless inside. She already knew that finding Tang Xiu wouldn’t result in any effect whatsoever, not even the tiniest clues or tracks could be gotten from him.
-This guy… was unlike a young man, but more like a cunning old fox.
-Soon after, Cheng Xuemei asked a few more questions, only to turn more desperate, since there was nothing to find. She looked at Tang Xiu and said, “Alright, I’m done with the questions. Thank you for your cooperation. Anyway, we bid you farewell as we still have more work to do.”
-“Ah, why the hurry, Captain Cheng? How’s about having dinner first? I guarantee that my housekeeper’s culinary skills are first-class. Her cooking will make your appetite go wild and drive you to eat greedily.” Tang Xiu said with a smile.
-Cheng Xuemei was quite incensed and amused at the same time as she said, “You think I still have the time to stay here for dinner? The case is beating me black and blue, and I even got no time to sleep since yesterday. But to think that you have a housekeeper, the changes you have undergone in the last two months are really great.”
-“People need to move forward. The small business I’ve made recently got me some money. Otherwise, what you see me now wouldn’t make you feel this is the first time we meet each other, no?” Tang Xiu said with a smile.
-Cheng Xuemei recalled the scene when she first met Tang Xiu. She immediately nodded and said, “You’re good. You can share your mother’s worries and do everything you can to be successful. Anyways, thanks for tutoring my younger sister.”
-“We’re classmates, we ought to love each other.” Tang Xiu waved and replied.
-Love each other?
-Cheng Xuemei stared at Tang Xiu with a strange look. She kind of had the feeling that there was another meaning in this line. Could there be something between him and her little sister...
-Her heart jolted and sped up. She stared at Tang Xiu seriously and asked, “You and my sister, shouldn’t the two of you be related as pure classmates only?”
-“Nope!” Tang Xiu shook his head and said.
-Chang Xuemei’s complexion changed, and her tone became stern and severe as she asked with a sinking tone, “What’s your relationship with her? My sister is still young, it’s not the time for her to have such a puppy love!”
-Tang Xiu was at a loss whether he had to laugh or cry, “Huh? I said we’re not just classmates because we’re friends, comrades. What do you think we’re doing? Even if I ever liked a woman, I wouldn’t be interested in such a little girl like her, no? But you, you actually fit my standard though. What if you wait for me a few years, until I graduated from the college, to marry me and give me a child?”
+Time passed by and the over hundred people in the hall were getting more desperate. Except for a few who knew the existence of Nine Dragon Island, the rest had never even heard of this place. Such foreign environment, brutal pirates and, coupled with the burst of gunfire sounding from time to time, it were as though a Taoist voodoo spell was hastening them to their deaths and scaring them.
+In the corner, Yi Lianyan had already severed the rope that tied her hands behind her back. However, she didn’t get up yet and even pushed her back to the corner and maintained the same posture. But her hand tightly held a folding fruit knife.
+She loved the ocean and used her summer vacation from Shanghai to visit the Southern Bird Island. Savoring the taste of the customs and visiting the beautiful environment there, even the only hotel where she stayed was facing the ocean. It was as though a warm spring with blooming flowers everywhere.
+Unfortunately, after having stayed in Southern Bird Island for more than half a month, when she was about to go to the other islands near Southern Bird Island, the pirates that had snuck into the island began their plunder. Thanks to her life in Sichuan Opera family who possessed magical changing appearance techniques for generations, hence, she hastily used the cosmetics she brought to change her appearance when the pirates weren’t paying attention to her.
+She actually possessed a beautiful face, but as the result of her efforts, she looked extremely ugly. It was precisely because of this that she was lucky enough to escape the abuses and ravages of those pirates and was locked up with a few others.
+“Everyone please think of a solution! We can escape even if only one person has untied his or her rope,” Kawasaki Oshima was restless as he sweated profusely.
+After half a minute, nobody responded. No one got up.
+Yi Lianyan’s expression constantly changed. She didn’t know whether there were still pirates outside. Were they still there and learned she was the first to untie her rope, they would probably kill her.
+_‘What should I do?’_
+Inside her innermost heart, a fierce battle commenced, causing her expression to constantly change.
+_‘I gotta go ahead regardless. Even if there’s only a slim chance of survival, I must get a hold of it. It’s better to act rather than resign myself to death and do nothing.’_ A determined expression finally appeared on Yi Lianyan’s eyes as she removed the ropes from her body and suddenly stood.
+“Bang…”
+The muffled sound of a gunshot sounded.
+Yi Lianyan’s face greatly changed. She instantly judged that someone had just shot the lock on the hall’s door. Almost in a flash, she squatted on the floor, scrambling to grab the ropes and casually wrapped it back around her body.
+In the next moment, the hall’s door was trampled open as several men in casual attire with submachine guns rushed into the hall. Upon seeing the situation inside, they instantly aimed their muzzles at the people inside.
+
+“The hostages are here, Boss!” A man turned his head and shouted toward the outside.
+Tang Xiu’s figure appeared at the door as his eyes swept toward the crowd in the hall with anger suffused in his eyes. The vast majority of these hostages were women, most of whom were in a very pitiful and embarrassing state and had apparently been raped and ravaged.
+In the corner, Yi Lianyan’s eyes instantly stared wide-eyed with an ecstatic expression in her eyes. The big man who just spoke was neither using English or Japanese. It was pure Mandarin.
+_‘Mandarin? Are they from China?’_
+Her breathing turned faster. After firming her heart, she immediately stood and shouted, “Hey, I’m Chinese, and you are?”
+Tang Xiu was stunned, looking at Yi Lianyan’s extremely ugly changed face and found that her clothes were still intact with only some scratches on her face. He immediately approached her and said, “Yes, we’re Chinese. I didn’t expect that these pirates also had kidnapped one of our fellow countrymen. What’s your name?”
+“Yi Lianyan!”
+“How did you get caught?” asked Tang Xiu.
+“I was visiting this place, making use of my summer vacation after the CET. I eventually got captured and was transported with them here,” said Yi Lianyan.
+Tang Xiu shook his head and sighed, “You luck is not good, but it’s not bad either. Congratulations. You’re free now.”
+Several men with submachine guns put their muzzles down and began to untie the hostages. After everyone stood, Kawasaki Oshima came before Tang Xiu with a face full of excitement and then respectfully said, “Hello, I’m Kawasaki Oshima. Thank you for saving us. You’re our savior and liberator, we will remember you.”
+Tang Xiu knitted his brows and asked lightly, “You’re all Japanese?”
+“Yes!” said Kawasaki Oshima.
+“Take a rest first then! I’ll send some people to escort you back after dawn. Also, I hope you won’t spread what happened here,” said Tang Xiu.
+“Dear Sir, we must try our best to publicize this act of kindness. After all, you drove away those pirates and you’re also our hero. It is only right if everyone all over the world knows your heroic deeds,” said Kawasaki Oshima.
+Tang Xiu indifferently looked at him and said lightly, “We are no heroes nor was it necessary for us to save you. It’s just that I have bought this island, whereas those pirates happened to be occupying it, so it was necessary for us to drive them away. Hence, rescuing you was just a passing incident. Not to mention that once the matters here were to spread out, it would only bring us a lot of troubles.”
+The over hundred rescued people looked at each other. They didn’t understand what Tang Xiu was saying. However, Tang Xiu was the one who rescued their lives, they didn’t want to bring trouble for him. Hence, they promised not to disclose anything that happened in this place.
+Certainly, the majority of them were women, to begin with. So they were naturally very satisfied with Tang Xiu’s request to keep the matter confidential. After all, they were just violated by the pirates, which was severely detrimental to their reputations.
+Tang Xiu then said in a deep voice, “Anyhow, it is not particularly safe outside, though. Some pirates have escaped and I can’t guarantee they won’t be back sneaking here again to avenge their comrades. Thus, you have to stay here until we make sure that all the remaining pirates have left.”
+“Alright…”
+“Thank you…”
+"..."
+Tang Xiu shook his head and was ready to leave as Yi Lianyan quickly rushed over and grabbed his arm. She then shook her head and said, “I don’t want to stay here. Can I go with you?”
+“You are the only Chinese here?” asked Tang Xiu after a moment’s hesitation.
+“There’s only me,” said Yi Lianyan with a nod.
+“Come then! Hopefully the scene outside won’t scare you off too much,” said Tang Xiu.
+After leaving the hall, Tang Xiu then said to several of his men who just came out, “Pile up all the dead bodies and then wait for Wolf Head and the others to come back.”
+“Yes!” the several men immediately dispersed upon hearing it.
+Half an hour later, Wolf Head, the Mo brothers, and the others arrived back and brought along six dead bodies. After throwing the corpses at the square outside the castle, Wolf Head respectfully said, “Boss, we only caught six, a few of them have escaped. After we caught up to them, we found that those several pirates had been long gone by ship.”
+Tang Xiu nodded, “Since they have escaped, just count it as their good luck. Anyways, pile up all the corpses! After burning them, we’ll clean up the castle.”
+“Yes!” Wolf Head respectfully replied.
+Tang Xiu then looked to Mo Awen and said, “After dawn, take some men and escort those civilian captives to Southern Bird Island. After you got there, warn them to keep it all confidential.”
+“Understood!” Mo Awen replied with a nod.
+After the fierce and intense night battle, only a few of the more than 200 pirates escaped as all others were killed here, making Tang Xiu rather satisfied with the victory. None of his men died and only a few were injured.
+However, the damage to the castle was not small due to the gun battle. However, since Tang Xiu had planned to rebuild the place, he didn’t seriously mind it. With Mo Awu accompanying him, he visited the entire castle and strolled around for several hours before returning to the square outside the castle with satisfaction.
+Yi Lianyan, who had been following Tang Xiu, tried to ask him questions many times, yet, seeing as how Tang Xiu was full of enthusiasm, she repressed her questions inside.
+At this moment, she finally couldn’t help asking, “Big Brother Tang, did you really buy this island?”
+“Yup,” Tang Xiu laughed.
+Once again, she asked, “Who are you really? What are you gonna do with such an isolated island? To my knowledge, it would perhaps take 24 hours to sail from here to Southern Bird Island. Also, this place is very difficult to find if you have no precise sea route navigation.”
+“Have you read Tao Yuanming’s Peach Blossom Spring?” Tang Xiu laughed.
+Yi Lianyan’s eyes stared wide, astounded, “I have. It’s the lore in the textbooks of junior high school. You mean… you want to build a paradise here?”
+“Yup. I want to build a paradise here,” Tang Xiu laughed.
+Yi Lianyan’s mouth twitched a few times as she said with a strange expression, "Rich men such as you have very particular hobbies. But how would your men be so powerful? They killed those ferocious pirates without batting an eye. Also, those pirates had more than 200 people, yet only a few of them escaped, while the rest were all killed by you and your men. Isn’t this rather too much?”
+Tang Xiu smiled faintly, “I don’t want to answer this question. But I can give you some words for free, though.”
+“What words?” asked Yi Lianyan, puzzled.
+Letting out a smile that was yet unlike one, Tang Xiu said, “A genuinely smart person is someone who knows how to feign ignorance. But someone who knows nothing yet wants to know the bottom of the matter would be just like the saying -- ‘curiosity killed the cat’.”
+Yi Lianyan was stupefied for a moment as she then instantly lowered her head and fell into silence.
+Letting out a faint smile, Tang Xiu then turned to Wolf Head and said, “I give you ten days to investigate the whole Nine Dragon Island. I must make sure that nobody except us are in this place. Besides, I’ll also draw architectural designs and decide the construction company that will cooperate with me before I return to the mainland.”
+“Boss, I think the constructions here are rather fine! Why do you want to rebuild it?” said Wolf Head.
